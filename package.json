@@ -1,0 +1,15 @@
+{
+  "name": "bing-wallpaper",
+  "version": "1.0.0",
+  "description": "get day wallpaper from bing",
+  "main": "index.js",
+  "scripts": {
+    "start": "node index.js",
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "author": "lxuan",
+  "license": "ISC",
+  "dependencies": {
+    "node-fetch": "^2.6.1"
+  }
+}
