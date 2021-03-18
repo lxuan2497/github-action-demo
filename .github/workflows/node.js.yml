@@ -16,7 +16,7 @@ jobs:
 
     strategy:
       matrix:
-        node-version: 14.x
+        node-version: [14.x]
         # See supported Node.js release schedule at https://nodejs.org/en/about/releases/
 
     steps:
@@ -37,5 +37,5 @@ jobs:
     - name: Push changes
       uses: ad-m/github-push-action@master
       with: 
-        github_token: ${{ secrets.GIT_TOKEN }}
+        github_token: ${{ secrets.GITHUB_TOKEN }}
         branch: main
