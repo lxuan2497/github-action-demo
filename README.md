@@ -1,3 +1,5 @@
+## 2021-03-23
+![image](https://www.bing.com/th?id=OHR.LoftedMadagascar_ZH-CN0062899981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马尼亚河的卫星图像，马达加斯加 (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)](https://www.bing.com/th?id=OHR.LoftedMadagascar_ZH-CN0062899981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-03-22
 ![image](https://www.bing.com/th?id=OHR.JouxFog_ZH-CN9947036409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[汝拉山中的Chateau de Joux堡，法国 (© Ivoha/Alamy)](https://www.bing.com/th?id=OHR.JouxFog_ZH-CN9947036409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-03-21
