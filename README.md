@@ -1,3 +1,5 @@
+## 2021-04-09
+![image](https://www.bing.com/th?id=OHR.HovenweepDarkSky_ZH-CN5264718531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Hovenweep国家纪念碑的方塔，犹他州 (© Brad McGinley Photography/Getty Images)](https://www.bing.com/th?id=OHR.HovenweepDarkSky_ZH-CN5264718531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-04-08
 ![image](https://www.bing.com/th?id=OHR.TetraoTetrix_ZH-CN3813461274_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[正在打鸣求偶的雄性黑琴鸡，芬兰库萨莫 (© Oliver Smart/Alamy)](https://www.bing.com/th?id=OHR.TetraoTetrix_ZH-CN3813461274_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-04-07
