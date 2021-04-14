@@ -1,3 +1,5 @@
+## 2021-04-14
+![image](https://www.bing.com/th?id=OHR.CarrizoPlain_ZH-CN5933565493_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡里佐平原国家纪念区的野花，加利福尼亚 (© Dennis Frates/Alamy)](https://www.bing.com/th?id=OHR.CarrizoPlain_ZH-CN5933565493_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-04-13
 ![image](https://www.bing.com/th?id=OHR.WatPhraSiSanphet_ZH-CN5830557189_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大城历史公园中的帕喜善佩寺，泰国大城府 (© travelstock44/Alamy)](https://www.bing.com/th?id=OHR.WatPhraSiSanphet_ZH-CN5830557189_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-04-12
