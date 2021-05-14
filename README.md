@@ -1,3 +1,5 @@
+## 2021-05-14
+![image](https://www.bing.com/th?id=OHR.AltaFloresta_ZH-CN9153671055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[上弗洛雷斯塔附近晨雾中亚马逊雨林，巴西马托格罗索 (© Pulsar Imagens/Alamy)](https://www.bing.com/th?id=OHR.AltaFloresta_ZH-CN9153671055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-05-13
 ![image](https://www.bing.com/th?id=OHR.ShikisaiBiei_ZH-CN9063139813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[美瑛町的四季彩之丘，日本 (© Tanya Jones/Shutterstock)](https://www.bing.com/th?id=OHR.ShikisaiBiei_ZH-CN9063139813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-05-12
