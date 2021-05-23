@@ -1,3 +1,5 @@
+## 2021-05-23
+![image](https://www.bing.com/th?id=OHR.RoseRoom_ZH-CN1841119971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纽约公共图书馆总部翻新后的玫瑰主阅览室，纽约市 (© Sascha Kilmer/Getty Images)](https://www.bing.com/th?id=OHR.RoseRoom_ZH-CN1841119971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-05-22
 ![image](https://www.bing.com/th?id=OHR.CapeofTossa_ZH-CN1743321499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[由中世纪的城墙包围着的市镇，西班牙滨海托萨 (© dleiva/Alamy)](https://www.bing.com/th?id=OHR.CapeofTossa_ZH-CN1743321499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-05-21
