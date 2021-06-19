@@ -1,3 +1,5 @@
+## 2021-06-19
+![image](https://www.bing.com/th?id=OHR.BurleighHeads_ZH-CN6052781534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在伯利角冲浪的人们，澳大利亚黄金海岸 (© Vicki Smith/Getty Images)](https://www.bing.com/th?id=OHR.BurleighHeads_ZH-CN6052781534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-18
 ![image](https://www.bing.com/th?id=OHR.ReussRiver_ZH-CN5897721217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Aerial view of Chapel Bridge over the river Reuss in Lucerne, Switzerland (© Neleman Initiative/Gallery Stock)](https://www.bing.com/th?id=OHR.ReussRiver_ZH-CN5897721217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-17
