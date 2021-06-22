@@ -1,3 +1,5 @@
+## 2021-06-22
+![image](https://www.bing.com/th?id=OHR.SouthCoast_ZH-CN9438294266_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞里雅兰瀑布后的午夜太阳，冰岛南海岸附近 (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.SouthCoast_ZH-CN9438294266_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-21
 ![image](https://www.bing.com/th?id=OHR.RothschildGiraffe_ZH-CN9266877986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳库鲁湖国家公园中的罗氏长颈鹿，肯尼亚 (© Theo Allofs/Minden Pictures)](https://www.bing.com/th?id=OHR.RothschildGiraffe_ZH-CN9266877986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-20
