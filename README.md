@@ -1,3 +1,5 @@
+## 2021-06-26
+![image](https://www.bing.com/th?id=OHR.Kamikouchi_ZH-CN5677161294_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Kamikōchi, Nagano Prefecture, Japan (© sadao/Shutterstock)](https://www.bing.com/th?id=OHR.Kamikouchi_ZH-CN5677161294_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-25
 ![image](https://www.bing.com/th?id=OHR.Heliodoxa_ZH-CN9872355419_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[皇辉蜂鸟和蜜蜂，哥伦比亚 (© Jiri Hrebicek/Alamy)](https://www.bing.com/th?id=OHR.Heliodoxa_ZH-CN9872355419_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-24
