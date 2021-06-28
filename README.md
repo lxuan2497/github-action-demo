@@ -1,3 +1,5 @@
+## 2021-06-28
+![image](https://www.bing.com/th?id=OHR.Cittadella_ZH-CN0039969121_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[戈佐岛上的Cittadella城堡,马耳他 (© Davide Seddio/Getty Images)](https://www.bing.com/th?id=OHR.Cittadella_ZH-CN0039969121_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-27
 ![image](https://www.bing.com/th?id=OHR.GreaterFlamingosIndia_ZH-CN5655181892_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大型火烈鸟迁徙到淡水区，印度 (© Amresh Mishra/500px/Getty Images)](https://www.bing.com/th?id=OHR.GreaterFlamingosIndia_ZH-CN5655181892_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-06-26
