@@ -1,3 +1,5 @@
+## 2021-07-04
+![image](https://www.bing.com/th?id=OHR.LakeSchreckseeBY_ZH-CN0786328970_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔高阿尔卑斯山脉的Schrecksee湖，德国巴伐利亚 (© Andreas Hagspiel/EyeEm/Getty Images)](https://www.bing.com/th?id=OHR.LakeSchreckseeBY_ZH-CN0786328970_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-03
 ![image](https://www.bing.com/th?id=OHR.WakatobiNP_ZH-CN0672859436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓦卡托比国家公园，印度尼西亚 (© Fabio Lamanna/Alamy)](https://www.bing.com/th?id=OHR.WakatobiNP_ZH-CN0672859436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-02
