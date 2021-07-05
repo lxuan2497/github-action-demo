@@ -1,3 +1,5 @@
+## 2021-07-05
+![image](https://www.bing.com/th?id=OHR.SerraMalagueta_ZH-CN4592152973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Serra da Malagueta山脉，佛得角圣地亚哥岛 (© Samuel Borges Photography/Shutterstock)](https://www.bing.com/th?id=OHR.SerraMalagueta_ZH-CN4592152973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-04
 ![image](https://www.bing.com/th?id=OHR.LakeSchreckseeBY_ZH-CN0786328970_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔高阿尔卑斯山脉的Schrecksee湖，德国巴伐利亚 (© Andreas Hagspiel/EyeEm/Getty Images)](https://www.bing.com/th?id=OHR.LakeSchreckseeBY_ZH-CN0786328970_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-03
