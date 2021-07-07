@@ -1,3 +1,5 @@
+## 2021-07-07
+![image](https://www.bing.com/th?id=OHR.LakeUrmia_ZH-CN4941337431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌鲁米耶湖中的岩层，伊朗 (© Ali/Adobe Stock)](https://www.bing.com/th?id=OHR.LakeUrmia_ZH-CN4941337431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-06
 ![image](https://www.bing.com/th?id=OHR.TawnyFrogmouth_ZH-CN4722501936_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[茶色蟆口鸱雏鸟，澳大利亚 (© SnapRapid/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.TawnyFrogmouth_ZH-CN4722501936_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-05
