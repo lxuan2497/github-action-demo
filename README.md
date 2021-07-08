@@ -1,3 +1,5 @@
+## 2021-07-08
+![image](https://www.bing.com/th?id=OHR.AppalachianTrail_ZH-CN5076145300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿巴拉契亚国家步道,新泽西州斯托克斯州立森林 (© Frank DeBonis/Getty Images)](https://www.bing.com/th?id=OHR.AppalachianTrail_ZH-CN5076145300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-07
 ![image](https://www.bing.com/th?id=OHR.LakeUrmia_ZH-CN4941337431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌鲁米耶湖中的岩层，伊朗 (© Ali/Adobe Stock)](https://www.bing.com/th?id=OHR.LakeUrmia_ZH-CN4941337431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-06
