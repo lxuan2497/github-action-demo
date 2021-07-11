@@ -1,3 +1,5 @@
+## 2021-07-11
+![image](https://www.bing.com/th?id=OHR.SpiralAloe_ZH-CN5594814833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[螺旋状芦荟 (© David Madison/Getty Images)](https://www.bing.com/th?id=OHR.SpiralAloe_ZH-CN5594814833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-10
 ![image](https://www.bing.com/th?id=OHR.MonfragueNationalPark_ZH-CN5421553314_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塔霍河上空的银河，西班牙蒙弗拉圭国家公园 (© Miguel Angel Muñoz Ruiz/Cavan Images)](https://www.bing.com/th?id=OHR.MonfragueNationalPark_ZH-CN5421553314_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-09
