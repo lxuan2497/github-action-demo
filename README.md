@@ -1,3 +1,5 @@
+## 2021-07-12
+![image](https://www.bing.com/th?id=OHR.LighthouseWave_ZH-CN5731015881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海浪撞击费尔盖拉什灯塔，葡萄牙波尔图 (© Stephan Zirwes/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.LighthouseWave_ZH-CN5731015881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-11
 ![image](https://www.bing.com/th?id=OHR.SpiralAloe_ZH-CN5594814833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[螺旋状芦荟 (© David Madison/Getty Images)](https://www.bing.com/th?id=OHR.SpiralAloe_ZH-CN5594814833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-10
