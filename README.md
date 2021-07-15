@@ -1,3 +1,5 @@
+## 2021-07-15
+![image](https://www.bing.com/th?id=OHR.NgoDong_ZH-CN6211342982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Ngo Dong河两岸的稻田美景，越南宁平省 (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.NgoDong_ZH-CN6211342982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-14
 ![image](https://www.bing.com/th?id=OHR.SharkAwareness_ZH-CN6069597614_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大溪地海岸附近的乌翅真鲨，法属波利尼西亚 (© Paul Mckenzie/Minden Pictures)](https://www.bing.com/th?id=OHR.SharkAwareness_ZH-CN6069597614_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-13
