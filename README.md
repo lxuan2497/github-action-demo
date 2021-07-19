@@ -1,3 +1,5 @@
+## 2021-07-19
+![image](https://www.bing.com/th?id=OHR.Tetouan_ZH-CN6795834080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[麦地那的彩色小巷， 摩洛哥得土安市 (© Jan Wlodarczyk/eStock Photo)](https://www.bing.com/th?id=OHR.Tetouan_ZH-CN6795834080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-18
 ![image](https://www.bing.com/th?id=OHR.ZinnowitzSeebruecke_ZH-CN6706198565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Zinnowitz pier on Usedom island in the Baltic Sea, Germany (© Frank Günther/Getty Images)](https://www.bing.com/th?id=OHR.ZinnowitzSeebruecke_ZH-CN6706198565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-17
