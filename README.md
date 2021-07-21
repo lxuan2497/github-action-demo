@@ -1,3 +1,5 @@
+## 2021-07-21
+![image](https://www.bing.com/th?id=OHR.VermilionLakes_ZH-CN3446257764_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[山脉中的朱砂湖，加拿大落基山脉 (© Glowing Earth Photography/Getty Images)](https://www.bing.com/th?id=OHR.VermilionLakes_ZH-CN3446257764_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-20
 ![image](https://www.bing.com/th?id=OHR.PrathameshJaju_ZH-CN2207606082_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[月球的高清合成影像 (© Prathamesh Jaju)](https://www.bing.com/th?id=OHR.PrathameshJaju_ZH-CN2207606082_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-19
