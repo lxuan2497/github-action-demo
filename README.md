@@ -1,3 +1,5 @@
+## 2021-07-22
+![image](https://www.bing.com/th?id=OHR.MinokakeRocks_ZH-CN2474262090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[伊豆半岛海岸附近的 Minokake-Iwa 奇岩群，日本 (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.MinokakeRocks_ZH-CN2474262090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-21
 ![image](https://www.bing.com/th?id=OHR.VermilionLakes_ZH-CN3446257764_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[山脉中的朱砂湖，加拿大落基山脉 (© Glowing Earth Photography/Getty Images)](https://www.bing.com/th?id=OHR.VermilionLakes_ZH-CN3446257764_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-20
