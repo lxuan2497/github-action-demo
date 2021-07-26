@@ -1,3 +1,5 @@
+## 2021-07-26
+![image](https://www.bing.com/th?id=OHR.DancingTrees_ZH-CN2946844631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Walakiri海滩的红树林，印度尼西亚松巴岛 (© Tengguo Wu/Getty Images)](https://www.bing.com/th?id=OHR.DancingTrees_ZH-CN2946844631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-25
 ![image](https://www.bing.com/th?id=OHR.CityPalaceUdaipur_ZH-CN2773121437_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[皮丘拉湖畔的乌代布尔城市宫殿，印度 (© Chaiyun Damkaew/Getty Images)](https://www.bing.com/th?id=OHR.CityPalaceUdaipur_ZH-CN2773121437_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-24
