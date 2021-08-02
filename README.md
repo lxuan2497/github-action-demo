@@ -1,3 +1,5 @@
+## 2021-08-02
+![image](https://www.bing.com/th?id=OHR.UpperCathedral_ZH-CN4349673438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圆顶礁国家公园的大教堂谷，犹他州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.UpperCathedral_ZH-CN4349673438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-01
 ![image](https://www.bing.com/th?id=OHR.LammasDay_ZH-CN4229387191_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[东洛锡安的金黄麦田，苏格兰 (© Scott Masterton/plainpicture)](https://www.bing.com/th?id=OHR.LammasDay_ZH-CN4229387191_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-07-31
