@@ -1,3 +1,5 @@
+## 2021-08-03
+![image](https://www.bing.com/th?id=OHR.CasteldelMonte_ZH-CN4436589634_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蒙特城堡，意大利普利亚大区 (© Toni Spagone/Alamy)](https://www.bing.com/th?id=OHR.CasteldelMonte_ZH-CN4436589634_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-02
 ![image](https://www.bing.com/th?id=OHR.UpperCathedral_ZH-CN4349673438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圆顶礁国家公园的大教堂谷，犹他州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.UpperCathedral_ZH-CN4349673438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-01
