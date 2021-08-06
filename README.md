@@ -1,3 +1,5 @@
+## 2021-08-06
+![image](https://www.bing.com/th?id=OHR.SalisburyCrags_ZH-CN4712204475_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从索尔兹伯里的峭壁上俯瞰爱丁堡，苏格兰荷里路德公园 (© Andrew Merry/Getty Images)](https://www.bing.com/th?id=OHR.SalisburyCrags_ZH-CN4712204475_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-05
 ![image](https://www.bing.com/th?id=OHR.DorsetPinnacles_ZH-CN2764578102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[波白克岛的小尖塔岩石，英格兰多塞特 (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.DorsetPinnacles_ZH-CN2764578102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-04
