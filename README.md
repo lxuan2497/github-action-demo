@@ -1,3 +1,5 @@
+## 2021-08-07
+![image](https://www.bing.com/th?id=OHR.SaltCones_ZH-CN4825397608_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌尤尼盐沼上的锥形盐堆，玻利维亚 (© John Shaw/Minden Pictures)](https://www.bing.com/th?id=OHR.SaltCones_ZH-CN4825397608_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-06
 ![image](https://www.bing.com/th?id=OHR.SalisburyCrags_ZH-CN4712204475_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从索尔兹伯里的峭壁上俯瞰爱丁堡，苏格兰荷里路德公园 (© Andrew Merry/Getty Images)](https://www.bing.com/th?id=OHR.SalisburyCrags_ZH-CN4712204475_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-05
