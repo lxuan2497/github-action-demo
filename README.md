@@ -1,3 +1,5 @@
+## 2021-08-08
+![image](https://www.bing.com/th?id=OHR.QuayBridge_ZH-CN4900551209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[伊丽莎白女皇码头桥，澳大利亚珀斯 (© Amazing Aerial Agency/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.QuayBridge_ZH-CN4900551209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-07
 ![image](https://www.bing.com/th?id=OHR.SaltCones_ZH-CN4825397608_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌尤尼盐沼上的锥形盐堆，玻利维亚 (© John Shaw/Minden Pictures)](https://www.bing.com/th?id=OHR.SaltCones_ZH-CN4825397608_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-06
