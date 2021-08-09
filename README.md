@@ -1,3 +1,5 @@
+## 2021-08-09
+![image](https://www.bing.com/th?id=OHR.MineBay_ZH-CN4962056960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雕刻师在矿山湾创作的岩雕作品，新西兰北岛陶波湖 (© Evgueni Zverev/Alamy)](https://www.bing.com/th?id=OHR.MineBay_ZH-CN4962056960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-08
 ![image](https://www.bing.com/th?id=OHR.QuayBridge_ZH-CN4900551209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[伊丽莎白女皇码头桥，澳大利亚珀斯 (© Amazing Aerial Agency/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.QuayBridge_ZH-CN4900551209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-07
