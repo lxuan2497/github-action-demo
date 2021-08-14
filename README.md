@@ -1,3 +1,5 @@
+## 2021-08-14
+![image](https://www.bing.com/th?id=OHR.UbehebeCrater_ZH-CN0157876978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[死亡谷国家公园里的优比喜比火山口，加利福尼亚州 (© Albert Knapp/Alamy)](https://www.bing.com/th?id=OHR.UbehebeCrater_ZH-CN0157876978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-13
 ![image](https://www.bing.com/th?id=OHR.Southpaw_ZH-CN0080320297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安斯海滩上的角眼沙蟹，塞舌尔普拉兰岛 (© Ingo Schulz/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.Southpaw_ZH-CN0080320297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-12
