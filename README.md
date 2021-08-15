@@ -1,3 +1,5 @@
+## 2021-08-15
+![image](https://www.bing.com/th?id=OHR.StrandbadTiefenbrunnen_ZH-CN0240023450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[苏黎世湖岸边的室外游泳池，瑞士 (© Amazing Aerial Agency/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.StrandbadTiefenbrunnen_ZH-CN0240023450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-14
 ![image](https://www.bing.com/th?id=OHR.UbehebeCrater_ZH-CN0157876978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[死亡谷国家公园里的优比喜比火山口，加利福尼亚州 (© Albert Knapp/Alamy)](https://www.bing.com/th?id=OHR.UbehebeCrater_ZH-CN0157876978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-13
