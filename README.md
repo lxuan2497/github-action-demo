@@ -1,3 +1,5 @@
+## 2021-08-16
+![image](https://www.bing.com/th?id=OHR.PortAventura_ZH-CN0298709661_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[落日时分的香巴拉过山车剪影，西班牙塔拉戈纳萨洛 (© Joaquim F. P./Getty Images)](https://www.bing.com/th?id=OHR.PortAventura_ZH-CN0298709661_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-15
 ![image](https://www.bing.com/th?id=OHR.StrandbadTiefenbrunnen_ZH-CN0240023450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[苏黎世湖岸边的室外游泳池，瑞士 (© Amazing Aerial Agency/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.StrandbadTiefenbrunnen_ZH-CN0240023450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-14
