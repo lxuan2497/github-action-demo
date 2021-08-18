@@ -1,3 +1,5 @@
+## 2021-08-18
+![image](https://www.bing.com/th?id=OHR.RedRoofTile_ZH-CN0528575898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杜布罗夫尼克老城，克罗地亚 (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.RedRoofTile_ZH-CN0528575898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-17
 ![image](https://www.bing.com/th?id=OHR.PochuckValley_ZH-CN0432836291_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[天堂之路，新泽西州瓦瓦安达州立公园 (© Leembe/Getty Images)](https://www.bing.com/th?id=OHR.PochuckValley_ZH-CN0432836291_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-16
