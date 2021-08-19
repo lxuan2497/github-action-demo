@@ -1,3 +1,5 @@
+## 2021-08-19
+![image](https://www.bing.com/th?id=OHR.GiantManta_ZH-CN0594951444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巨型海洋蝠鲼和摄影师，澳大利亚宁格罗海岸 (© Shutterstock Premier)](https://www.bing.com/th?id=OHR.GiantManta_ZH-CN0594951444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-18
 ![image](https://www.bing.com/th?id=OHR.RedRoofTile_ZH-CN0528575898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杜布罗夫尼克老城，克罗地亚 (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.RedRoofTile_ZH-CN0528575898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-17
