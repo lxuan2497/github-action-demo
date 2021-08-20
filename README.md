@@ -1,3 +1,5 @@
+## 2021-08-20
+![image](https://www.bing.com/th?id=OHR.EmptyQuarter_ZH-CN0670918289_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[位于阿曼和迪拜酋长国边界的鲁卜哈利沙漠 (© Daniel Schoenen/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.EmptyQuarter_ZH-CN0670918289_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-19
 ![image](https://www.bing.com/th?id=OHR.GiantManta_ZH-CN0594951444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巨型海洋蝠鲼和摄影师，澳大利亚宁格罗海岸 (© Shutterstock Premier)](https://www.bing.com/th?id=OHR.GiantManta_ZH-CN0594951444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-18
