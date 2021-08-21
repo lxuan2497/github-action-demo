@@ -1,3 +1,5 @@
+## 2021-08-21
+![image](https://www.bing.com/th?id=OHR.PetitMinou_ZH-CN0758401900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[港边的小米努灯塔，法国布雷斯特 (© Mathieu Rivrin/Getty Images)](https://www.bing.com/th?id=OHR.PetitMinou_ZH-CN0758401900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-20
 ![image](https://www.bing.com/th?id=OHR.EmptyQuarter_ZH-CN0670918289_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[位于阿曼和迪拜酋长国边界的鲁卜哈利沙漠 (© Daniel Schoenen/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.EmptyQuarter_ZH-CN0670918289_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-19
