@@ -1,3 +1,5 @@
+## 2021-08-24
+![image](https://www.bing.com/th?id=OHR.HippieTown_ZH-CN0980866245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[排成篱笆模样的旧滑板，夏威夷毛伊岛 (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.HippieTown_ZH-CN0980866245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-23
 ![image](https://www.bing.com/th?id=OHR.LittleBlueHeron_ZH-CN0892428603_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[浅水滩上的小蓝鹭，古巴 (© Sergey Uryadnikov/Alamy)](https://www.bing.com/th?id=OHR.LittleBlueHeron_ZH-CN0892428603_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-22
