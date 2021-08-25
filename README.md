@@ -1,3 +1,5 @@
+## 2021-08-25
+![image](https://www.bing.com/th?id=OHR.WalhallaOverlook_ZH-CN1059655401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[美国大峡谷北缘的天使之窗，亚利桑那州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WalhallaOverlook_ZH-CN1059655401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-24
 ![image](https://www.bing.com/th?id=OHR.HippieTown_ZH-CN0980866245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[排成篱笆模样的旧滑板，夏威夷毛伊岛 (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.HippieTown_ZH-CN0980866245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-23
