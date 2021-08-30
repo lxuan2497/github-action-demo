@@ -1,3 +1,5 @@
+## 2021-08-30
+![image](https://www.bing.com/th?id=OHR.MayonVolcano_ZH-CN0183039911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[菲律宾马荣山的火山口冒烟 (© Per-Andre Hoffmann/Cavan)](https://www.bing.com/th?id=OHR.MayonVolcano_ZH-CN0183039911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-29
 ![image](https://www.bing.com/th?id=OHR.Ruskeala_ZH-CN0059931600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Ruskeala山地公园的地下湖， 俄罗斯卡累利阿 (© Konstantin Trubavin/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.Ruskeala_ZH-CN0059931600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-28
