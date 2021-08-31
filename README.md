@@ -1,3 +1,5 @@
+## 2021-08-31
+![image](https://www.bing.com/th?id=OHR.DjurdjevicaBridge_ZH-CN0284105882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杜德维卡塔拉大桥，黑山 (© Hike The World/Shutterstock)](https://www.bing.com/th?id=OHR.DjurdjevicaBridge_ZH-CN0284105882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-30
 ![image](https://www.bing.com/th?id=OHR.MayonVolcano_ZH-CN0183039911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[菲律宾马荣山的火山口冒烟 (© Per-Andre Hoffmann/Cavan)](https://www.bing.com/th?id=OHR.MayonVolcano_ZH-CN0183039911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-08-29
