@@ -1,3 +1,5 @@
+## 2021-09-04
+![image](https://www.bing.com/th?id=OHR.AnnasHummingbird_ZH-CN0832228710_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[静立枝头的朱红蜂鸟 (© Dee/Getty Images)](https://www.bing.com/th?id=OHR.AnnasHummingbird_ZH-CN0832228710_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-03
 ![image](https://www.bing.com/th?id=OHR.AlienEggs_ZH-CN0732640719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[比斯蒂荒野上的“外星孵化场”，新墨西哥州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlienEggs_ZH-CN0732640719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-02
