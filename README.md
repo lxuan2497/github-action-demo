@@ -1,3 +1,5 @@
+## 2021-09-12
+![image](https://www.bing.com/th?id=OHR.AsianElephants_ZH-CN2736490825_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[印度西孟加拉邦的亚洲象 (© Avijan Saha/Minden Pictures)](https://www.bing.com/th?id=OHR.AsianElephants_ZH-CN2736490825_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-11
 ![image](https://www.bing.com/th?id=OHR.HainichBaumwipfelpfad_ZH-CN2635981561_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Treetop walkway in Hainich National Park, Thuringia, Germany (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.HainichBaumwipfelpfad_ZH-CN2635981561_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-10
