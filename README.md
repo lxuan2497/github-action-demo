@@ -1,3 +1,5 @@
+## 2021-09-16
+![image](https://www.bing.com/th?id=OHR.HouseboatKerala_ZH-CN0318796630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿拉普扎的船屋，印度喀拉拉邦 (© Martin Harvey/The Image Bank/Getty Images)](https://www.bing.com/th?id=OHR.HouseboatKerala_ZH-CN0318796630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-15
 ![image](https://www.bing.com/th?id=OHR.BirnbeckPier_ZH-CN0177628993_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布里斯托尔海峡的伯恩贝克码头，英国滨海韦斯顿北索美塞得 (© Stephen Davies/Adobe Stock)](https://www.bing.com/th?id=OHR.BirnbeckPier_ZH-CN0177628993_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-14
