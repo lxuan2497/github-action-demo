@@ -1,3 +1,5 @@
+## 2021-09-17
+![image](https://www.bing.com/th?id=OHR.BenagilCave_ZH-CN0480408879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[贝纳吉尔洞穴，葡萄牙阿尔加维 (© Michael Malorny/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.BenagilCave_ZH-CN0480408879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-16
 ![image](https://www.bing.com/th?id=OHR.HouseboatKerala_ZH-CN0318796630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿拉普扎的船屋，印度喀拉拉邦 (© Martin Harvey/The Image Bank/Getty Images)](https://www.bing.com/th?id=OHR.HouseboatKerala_ZH-CN0318796630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-15
