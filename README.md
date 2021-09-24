@@ -1,3 +1,5 @@
+## 2021-09-24
+![image](https://www.bing.com/th?id=OHR.CuscoCathedral_ZH-CN9834821723_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿玛斯广场上的库斯科大教堂，库斯科，秘鲁 (© sharptoyou/Shutterstock)](https://www.bing.com/th?id=OHR.CuscoCathedral_ZH-CN9834821723_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-23
 ![image](https://www.bing.com/th?id=OHR.BrilliantBlue_ZH-CN1727875801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蔚蓝色的海王星 (© NASA/JPL)](https://www.bing.com/th?id=OHR.BrilliantBlue_ZH-CN1727875801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-22
