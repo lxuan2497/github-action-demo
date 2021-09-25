@@ -1,3 +1,5 @@
+## 2021-09-25
+![image](https://www.bing.com/th?id=OHR.PorkiesTrail_ZH-CN0014697428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[豪猪山荒野国家公园中的小路，美国密歇根州 (© Pat & Chuck Blackley/Alamy)](https://www.bing.com/th?id=OHR.PorkiesTrail_ZH-CN0014697428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-24
 ![image](https://www.bing.com/th?id=OHR.CuscoCathedral_ZH-CN9834821723_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿玛斯广场上的库斯科大教堂，库斯科，秘鲁 (© sharptoyou/Shutterstock)](https://www.bing.com/th?id=OHR.CuscoCathedral_ZH-CN9834821723_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-23
