@@ -1,3 +1,5 @@
+## 2021-10-01
+![image](https://www.bing.com/th?id=OHR.HyacinthMacaws_ZH-CN1191345036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[潘塔纳尔湿地的风信子金刚鹦鹉，巴西 (© David Pattyn/Minden Pictures)](https://www.bing.com/th?id=OHR.HyacinthMacaws_ZH-CN1191345036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-30
 ![image](https://www.bing.com/th?id=OHR.ContainerShip_ZH-CN0850122021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加利福尼亚州的一艘集装箱船，美国 (© Cameron Venti/Getty Images)](https://www.bing.com/th?id=OHR.ContainerShip_ZH-CN0850122021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-29
