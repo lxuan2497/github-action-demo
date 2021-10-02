@@ -1,3 +1,5 @@
+## 2021-10-02
+![image](https://www.bing.com/th?id=OHR.IvishakRiver_ZH-CN1464216156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北坡自治市镇的伊维沙克河，阿拉斯加州 (© Don Paulson/Danita Delimont)](https://www.bing.com/th?id=OHR.IvishakRiver_ZH-CN1464216156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-01
 ![image](https://www.bing.com/th?id=OHR.HyacinthMacaws_ZH-CN1191345036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[潘塔纳尔湿地的风信子金刚鹦鹉，巴西 (© David Pattyn/Minden Pictures)](https://www.bing.com/th?id=OHR.HyacinthMacaws_ZH-CN1191345036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-09-30
