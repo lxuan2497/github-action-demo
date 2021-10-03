@@ -1,3 +1,5 @@
+## 2021-10-03
+![image](https://www.bing.com/th?id=OHR.Italica_ZH-CN1692906751_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[古罗马斗兽场，西班牙桑蒂蓬塞镇的罗马古城遗迹 (© Amazing Aerial Agency/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.Italica_ZH-CN1692906751_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-02
 ![image](https://www.bing.com/th?id=OHR.IvishakRiver_ZH-CN1464216156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北坡自治市镇的伊维沙克河，阿拉斯加州 (© Don Paulson/Danita Delimont)](https://www.bing.com/th?id=OHR.IvishakRiver_ZH-CN1464216156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-01
