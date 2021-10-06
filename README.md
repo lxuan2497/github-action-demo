@@ -1,3 +1,5 @@
+## 2021-10-06
+![image](https://www.bing.com/th?id=OHR.SWColorado_ZH-CN2381176407_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[达拉斯分水岭, 科罗拉多州西南部 (© Ronda Kimbrow/Shutterstock)](https://www.bing.com/th?id=OHR.SWColorado_ZH-CN2381176407_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-05
 ![image](https://www.bing.com/th?id=OHR.FallPEI_ZH-CN2044233645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[爱德华王子岛的森林和树冠，加拿大 (© OliverChilds/Getty Images)](https://www.bing.com/th?id=OHR.FallPEI_ZH-CN2044233645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-04
