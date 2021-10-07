@@ -1,3 +1,5 @@
+## 2021-10-07
+![image](https://www.bing.com/th?id=OHR.HuayMaeKhamin_ZH-CN2718383027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Khuean Srinagarindra国家公园的Huay Mae Khamin瀑布,泰国 (© Casper1774Studio/Getty Images)](https://www.bing.com/th?id=OHR.HuayMaeKhamin_ZH-CN2718383027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-06
 ![image](https://www.bing.com/th?id=OHR.SWColorado_ZH-CN2381176407_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[达拉斯分水岭, 科罗拉多州西南部 (© Ronda Kimbrow/Shutterstock)](https://www.bing.com/th?id=OHR.SWColorado_ZH-CN2381176407_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-05
