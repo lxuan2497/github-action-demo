@@ -1,3 +1,5 @@
+## 2021-10-08
+![image](https://www.bing.com/th?id=OHR.FriendlyOctopus_ZH-CN2519447724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海草中的章鱼，法国利翁湾 (© BIOSPHOTO/Alamy)](https://www.bing.com/th?id=OHR.FriendlyOctopus_ZH-CN2519447724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-07
 ![image](https://www.bing.com/th?id=OHR.HuayMaeKhamin_ZH-CN2718383027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Khuean Srinagarindra国家公园的Huay Mae Khamin瀑布,泰国 (© Casper1774Studio/Getty Images)](https://www.bing.com/th?id=OHR.HuayMaeKhamin_ZH-CN2718383027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-06
