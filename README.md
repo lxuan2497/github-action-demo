@@ -1,3 +1,5 @@
+## 2021-10-09
+![image](https://www.bing.com/th?id=OHR.SandhillApache_ZH-CN3021579142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[野生动物保护区中的沙丘鹤和野鸭，美国新墨西哥州 (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.SandhillApache_ZH-CN3021579142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-08
 ![image](https://www.bing.com/th?id=OHR.FriendlyOctopus_ZH-CN2519447724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海草中的章鱼，法国利翁湾 (© BIOSPHOTO/Alamy)](https://www.bing.com/th?id=OHR.FriendlyOctopus_ZH-CN2519447724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-07
