@@ -1,3 +1,5 @@
+## 2021-10-12
+![image](https://www.bing.com/th?id=OHR.StMalo_ZH-CN3452597997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布列塔尼大区的城市圣马洛，法国 (© Mathieu Rivrin/Moment/Getty Images)](https://www.bing.com/th?id=OHR.StMalo_ZH-CN3452597997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-11
 ![image](https://www.bing.com/th?id=OHR.MauricieAutumn_ZH-CN3300167870_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[拉莫里斯国家公园中的Wapizagonke湖区，加拿大魁北克 (© Instants/Getty Images)](https://www.bing.com/th?id=OHR.MauricieAutumn_ZH-CN3300167870_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-10
