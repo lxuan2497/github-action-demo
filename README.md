@@ -1,3 +1,5 @@
+## 2021-10-16
+![image](https://www.bing.com/th?id=OHR.Hatshepsut_ZH-CN4516192627_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈特谢普苏特女王神庙鸟瞰图，埃及卢克索古城 (© Ratnakorn Piyasirisorost/Moment/Getty Images)](https://www.bing.com/th?id=OHR.Hatshepsut_ZH-CN4516192627_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-15
 ![image](https://www.bing.com/th?id=OHR.ProseccoHills_ZH-CN3931715664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[世界著名气泡酒产地普罗塞克山丘,意大利威尼托 (© Olimpio Fantuz/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ProseccoHills_ZH-CN3931715664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-14
