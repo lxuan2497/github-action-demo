@@ -1,3 +1,5 @@
+## 2021-10-18
+![image](https://www.bing.com/th?id=OHR.CapelCurig_ZH-CN5115677414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[史诺多尼亚国家公园的Capel Curig，英国威尔士 (© Sebastian Wasek/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.CapelCurig_ZH-CN5115677414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-17
 ![image](https://www.bing.com/th?id=OHR.Whakarewarewa_ZH-CN4957778498_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[华卡雷瓦雷瓦森林的红木纪念树林，新西兰北岛 (© Michael Breitung/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.Whakarewarewa_ZH-CN4957778498_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-16
