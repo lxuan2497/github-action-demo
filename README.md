@@ -1,3 +1,5 @@
+## 2021-10-19
+![image](https://www.bing.com/th?id=OHR.FanalMadeira_ZH-CN5337723033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马德拉岛的法纳尔森林，葡萄牙 (© Val Thoermer/Alamy)](https://www.bing.com/th?id=OHR.FanalMadeira_ZH-CN5337723033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-18
 ![image](https://www.bing.com/th?id=OHR.CapelCurig_ZH-CN5115677414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[史诺多尼亚国家公园的Capel Curig，英国威尔士 (© Sebastian Wasek/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.CapelCurig_ZH-CN5115677414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-17
