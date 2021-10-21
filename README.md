@@ -1,3 +1,5 @@
+## 2021-10-21
+![image](https://www.bing.com/th?id=OHR.AtchafalayaMoss_ZH-CN6079994094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿查法拉亚盆地的秃柏和西班牙苔藓，路易斯安那州 (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AtchafalayaMoss_ZH-CN6079994094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-20
 ![image](https://www.bing.com/th?id=OHR.SmileySloth_ZH-CN5943980097_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[微笑的树懒,哥斯达黎加 (© Lukas Kovarik/Shutterstock)](https://www.bing.com/th?id=OHR.SmileySloth_ZH-CN5943980097_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-19
