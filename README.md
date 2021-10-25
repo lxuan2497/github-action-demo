@@ -1,3 +1,5 @@
+## 2021-10-25
+![image](https://www.bing.com/th?id=OHR.BulgariaDevilBridge_ZH-CN1894068778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔达河上的魔鬼桥，保加利亚 (© Petar Mladenov/Alamy)](https://www.bing.com/th?id=OHR.BulgariaDevilBridge_ZH-CN1894068778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-24
 ![image](https://www.bing.com/th?id=OHR.Bavljenac_ZH-CN1739905750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[像巨大指纹一样的Bavljenac岛，克罗地亚 (© Julien Duval/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.Bavljenac_ZH-CN1739905750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-23
