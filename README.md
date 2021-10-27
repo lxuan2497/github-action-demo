@@ -1,3 +1,5 @@
+## 2021-10-27
+![image](https://www.bing.com/th?id=OHR.NewtonPumpkins_ZH-CN2560195971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[牛顿市的一片南瓜地，美国马萨诸塞州 (© Frank Debonis/EyeEm/Alamy)](https://www.bing.com/th?id=OHR.NewtonPumpkins_ZH-CN2560195971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-26
 ![image](https://www.bing.com/th?id=OHR.RedFoxBlackForest_ZH-CN2253259942_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黑林山中的赤狐，德国 (© Klaus Echle/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFoxBlackForest_ZH-CN2253259942_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-25
