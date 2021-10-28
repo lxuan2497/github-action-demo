@@ -1,3 +1,5 @@
+## 2021-10-28
+![image](https://www.bing.com/th?id=OHR.Dargavs_ZH-CN2721319869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北奥塞梯-阿兰共和国的一片墓地，俄罗斯 (© Yakov Oskanov/Shutterstock)](https://www.bing.com/th?id=OHR.Dargavs_ZH-CN2721319869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-27
 ![image](https://www.bing.com/th?id=OHR.NewtonPumpkins_ZH-CN2560195971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[牛顿市的一片南瓜地，美国马萨诸塞州 (© Frank Debonis/EyeEm/Alamy)](https://www.bing.com/th?id=OHR.NewtonPumpkins_ZH-CN2560195971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-26
