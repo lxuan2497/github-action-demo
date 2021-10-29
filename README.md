@@ -1,3 +1,5 @@
+## 2021-10-29
+![image](https://www.bing.com/th?id=OHR.UnkindnessRavens_ZH-CN2840574948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冷漠的渡鸦们，美国阿拉斯加州 (© Brian Browitt Photo/Adobe Stock)](https://www.bing.com/th?id=OHR.UnkindnessRavens_ZH-CN2840574948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-28
 ![image](https://www.bing.com/th?id=OHR.Dargavs_ZH-CN2721319869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北奥塞梯-阿兰共和国的一片墓地，俄罗斯 (© Yakov Oskanov/Shutterstock)](https://www.bing.com/th?id=OHR.Dargavs_ZH-CN2721319869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-27
