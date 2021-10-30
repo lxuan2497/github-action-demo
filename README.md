@@ -1,3 +1,5 @@
+## 2021-10-30
+![image](https://www.bing.com/th?id=OHR.MistyForest_ZH-CN3024731044_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[薄雾笼罩的松树林，越南 (© Thanh Thuy/Moment/Getty Images)](https://www.bing.com/th?id=OHR.MistyForest_ZH-CN3024731044_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-29
 ![image](https://www.bing.com/th?id=OHR.UnkindnessRavens_ZH-CN2840574948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冷漠的渡鸦们，美国阿拉斯加州 (© Brian Browitt Photo/Adobe Stock)](https://www.bing.com/th?id=OHR.UnkindnessRavens_ZH-CN2840574948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-28
