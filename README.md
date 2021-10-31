@@ -1,3 +1,5 @@
+## 2021-10-31
+![image](https://www.bing.com/th?id=OHR.YorkMinster_ZH-CN3129176050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[约克大教堂墙上的怪诞雕塑，英格兰北约克郡 (© John Potter/Alamy)](https://www.bing.com/th?id=OHR.YorkMinster_ZH-CN3129176050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-30
 ![image](https://www.bing.com/th?id=OHR.MistyForest_ZH-CN3024731044_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[薄雾笼罩的松树林，越南 (© Thanh Thuy/Moment/Getty Images)](https://www.bing.com/th?id=OHR.MistyForest_ZH-CN3024731044_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-29
