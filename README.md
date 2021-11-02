@@ -1,3 +1,5 @@
+## 2021-11-02
+![image](https://www.bing.com/th?id=OHR.CinnamonFernNS_ZH-CN3822051382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[亡灵节上点缀公墓的万寿菊，墨西哥米却肯州 (© Irwin Barrett/Design Pics/Alamy)](https://www.bing.com/th?id=OHR.CinnamonFernNS_ZH-CN3822051382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-01
 ![image](https://www.bing.com/th?id=OHR.LittleBirds_ZH-CN3637653515_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海滩上的三趾鹬，法国布列塔尼大区 (© Fabrice Cahez/Minden Pictures)](https://www.bing.com/th?id=OHR.LittleBirds_ZH-CN3637653515_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-10-31
