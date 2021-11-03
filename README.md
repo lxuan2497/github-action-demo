@@ -1,3 +1,5 @@
+## 2021-11-03
+![image](https://www.bing.com/th?id=OHR.MoonJellyDay_ZH-CN4121466496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海月水母和一群无刺的黄金水母，印度尼西亚 (© Alex Mustard/Minden Pictures)](https://www.bing.com/th?id=OHR.MoonJellyDay_ZH-CN4121466496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-02
 ![image](https://www.bing.com/th?id=OHR.CinnamonFernNS_ZH-CN3822051382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[亡灵节上点缀公墓的万寿菊，墨西哥米却肯州 (© Irwin Barrett/Design Pics/Alamy)](https://www.bing.com/th?id=OHR.CinnamonFernNS_ZH-CN3822051382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-01
