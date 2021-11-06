@@ -1,3 +1,5 @@
+## 2021-11-06
+![image](https://www.bing.com/th?id=OHR.WANumbat_ZH-CN0953446849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布鲁克顿的一只雌性袋食蚁兽，西澳大利亚州 (© Martin Willis/Minden Pictures)](https://www.bing.com/th?id=OHR.WANumbat_ZH-CN0953446849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-05
 ![image](https://www.bing.com/th?id=OHR.PontRouge_ZH-CN0788212424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕尔默河上的红桥，加拿大魁北克省 (© Jean Surprenant/Getty Images)](https://www.bing.com/th?id=OHR.PontRouge_ZH-CN0788212424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-04
