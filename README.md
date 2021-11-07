@@ -1,3 +1,5 @@
+## 2021-11-07
+![image](https://www.bing.com/th?id=OHR.MackArch_ZH-CN1068755647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的麦克拱岩，俄勒冈南海岸 (© Dennis Frates/Alamy)](https://www.bing.com/th?id=OHR.MackArch_ZH-CN1068755647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-06
 ![image](https://www.bing.com/th?id=OHR.WANumbat_ZH-CN0953446849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布鲁克顿的一只雌性袋食蚁兽，西澳大利亚州 (© Martin Willis/Minden Pictures)](https://www.bing.com/th?id=OHR.WANumbat_ZH-CN0953446849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-05
