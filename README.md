@@ -1,3 +1,5 @@
+## 2021-11-08
+![image](https://www.bing.com/th?id=OHR.ChurchillBears_ZH-CN1430090934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[好奇地看着相机的北极熊，加拿大丘吉尔镇 (© Matthias Breiter/Minden Pictures)](https://www.bing.com/th?id=OHR.ChurchillBears_ZH-CN1430090934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-07
 ![image](https://www.bing.com/th?id=OHR.MackArch_ZH-CN1068755647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的麦克拱岩，俄勒冈南海岸 (© Dennis Frates/Alamy)](https://www.bing.com/th?id=OHR.MackArch_ZH-CN1068755647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-06
