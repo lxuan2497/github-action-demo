@@ -1,3 +1,5 @@
+## 2021-11-10
+![image](https://www.bing.com/th?id=OHR.CumberlandSeashore_ZH-CN1662936356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[坎伯兰岛国家海岸，美国佐治亚州 (© Wilsilver77/Getty Images Plus)](https://www.bing.com/th?id=OHR.CumberlandSeashore_ZH-CN1662936356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-09
 ![image](https://www.bing.com/th?id=OHR.DalyanTombs_ZH-CN1519154607_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[悬崖上雕刻的古老岩石墓葬，土耳其达利安附近 (© Reinhard Schmid/eStock Photo)](https://www.bing.com/th?id=OHR.DalyanTombs_ZH-CN1519154607_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-08
