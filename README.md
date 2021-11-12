@@ -1,3 +1,5 @@
+## 2021-11-12
+![image](https://www.bing.com/th?id=OHR.BeaversBend_ZH-CN1916035610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海狸湾度假公园, 美国俄克拉何马州 (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.BeaversBend_ZH-CN1916035610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-11
 ![image](https://www.bing.com/th?id=OHR.NohsngithiangFalls_ZH-CN1819466830_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[梅加拉亚邦的七姐妹瀑布，印度 (© Upamanyoo Das/Shutterstock)](https://www.bing.com/th?id=OHR.NohsngithiangFalls_ZH-CN1819466830_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-10
