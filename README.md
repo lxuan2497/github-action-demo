@@ -1,3 +1,5 @@
+## 2021-11-13
+![image](https://www.bing.com/th?id=OHR.ElTajo_ZH-CN2134749418_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[鸟瞰埃尔塔霍峡谷, 西班牙龙达小镇 (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ElTajo_ZH-CN2134749418_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-12
 ![image](https://www.bing.com/th?id=OHR.BeaversBend_ZH-CN1916035610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海狸湾度假公园, 美国俄克拉何马州 (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.BeaversBend_ZH-CN1916035610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-11
