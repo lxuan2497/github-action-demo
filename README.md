@@ -1,3 +1,5 @@
+## 2021-11-15
+![image](https://www.bing.com/th?id=OHR.FloridaManatee_ZH-CN2405291075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[憨态可掬的海牛, 美国佛罗里达州 (© Paul E Tessier/Cavan Images/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.FloridaManatee_ZH-CN2405291075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-14
 ![image](https://www.bing.com/th?id=OHR.FirstCliff_ZH-CN2308482395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[第一悬崖步道，瑞士格林德瓦 (© Hans-Georg Eiben/eStock Photo)](https://www.bing.com/th?id=OHR.FirstCliff_ZH-CN2308482395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-13
