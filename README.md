@@ -1,3 +1,5 @@
+## 2021-11-19
+![image](https://www.bing.com/th?id=OHR.LeftForkNorth_ZH-CN8798894034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[The Subway slot canyon in Zion National Park, Utah (© Stan Moniz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LeftForkNorth_ZH-CN8798894034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-18
 ![image](https://www.bing.com/th?id=OHR.HyacinthMacaws_ZH-CN1191345036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[潘塔纳尔湿地的风信子金刚鹦鹉，巴西 (© David Pattyn/Minden Pictures)](https://www.bing.com/th?id=OHR.HyacinthMacaws_ZH-CN1191345036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-17
