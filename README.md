@@ -1,3 +1,5 @@
+## 2021-11-20
+![image](https://www.bing.com/th?id=OHR.FallAssiniboine_ZH-CN8878734090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿西尼博因山公园的秋叶，加拿大不列颠哥伦比亚省 (© Mitch Pittman/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FallAssiniboine_ZH-CN8878734090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-19
 ![image](https://www.bing.com/th?id=OHR.LeftForkNorth_ZH-CN8798894034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[The Subway slot canyon in Zion National Park, Utah (© Stan Moniz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LeftForkNorth_ZH-CN8798894034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-18
