@@ -1,3 +1,5 @@
+## 2021-11-21
+![image](https://www.bing.com/th?id=OHR.Invergarry_ZH-CN9013535988_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Invergarry村庄附近的森林，苏格兰 (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.Invergarry_ZH-CN9013535988_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-20
 ![image](https://www.bing.com/th?id=OHR.FallAssiniboine_ZH-CN8878734090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿西尼博因山公园的秋叶，加拿大不列颠哥伦比亚省 (© Mitch Pittman/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FallAssiniboine_ZH-CN8878734090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-19
