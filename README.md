@@ -1,3 +1,5 @@
+## 2021-11-23
+![image](https://www.bing.com/th?id=OHR.AmmoniteShell_ZH-CN9232274077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[菊石亚纲壳体的横截面 (© Marianna Armata/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteShell_ZH-CN9232274077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-22
 ![image](https://www.bing.com/th?id=OHR.IrohazakaRoad_ZH-CN9151363864_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[伊吕波坂山道，日本日光市 (© LightRecords/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaRoad_ZH-CN9151363864_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-21
