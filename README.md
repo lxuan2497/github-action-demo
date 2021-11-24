@@ -1,3 +1,5 @@
+## 2021-11-24
+![image](https://www.bing.com/th?id=OHR.ChocoHillBohol_ZH-CN9297094265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[独特的巧克力山，菲律宾薄荷岛 (© Danita Delimont/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.ChocoHillBohol_ZH-CN9297094265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-23
 ![image](https://www.bing.com/th?id=OHR.AmmoniteShell_ZH-CN9232274077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[菊石亚纲壳体的横截面 (© Marianna Armata/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteShell_ZH-CN9232274077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-22
