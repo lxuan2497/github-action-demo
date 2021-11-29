@@ -1,3 +1,5 @@
+## 2021-11-29
+![image](https://www.bing.com/th?id=OHR.RainbowMountain_ZH-CN9670076890_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被白雪覆盖的彩虹山，秘鲁 (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.RainbowMountain_ZH-CN9670076890_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-28
 ![image](https://www.bing.com/th?id=OHR.BeechTrees_ZH-CN9605292244_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[古老的水青冈树，英国北安普顿郡 (© Andrew Baskott/Alamy)](https://www.bing.com/th?id=OHR.BeechTrees_ZH-CN9605292244_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-27
