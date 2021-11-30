@@ -1,3 +1,5 @@
+## 2021-11-30
+![image](https://www.bing.com/th?id=OHR.ElephantGiving_ZH-CN9743352473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马赛马拉国家保护区中的非洲草原象，肯尼亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGiving_ZH-CN9743352473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-29
 ![image](https://www.bing.com/th?id=OHR.RainbowMountain_ZH-CN9670076890_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被白雪覆盖的彩虹山，秘鲁 (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.RainbowMountain_ZH-CN9670076890_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-11-28
