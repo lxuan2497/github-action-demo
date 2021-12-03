@@ -1,3 +1,5 @@
+## 2021-12-03
+![image](https://www.bing.com/th?id=OHR.FrostLeaves_ZH-CN6851974281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[披着一层霜花的秋叶 (© sagarmanis/Getty Images)](https://www.bing.com/th?id=OHR.FrostLeaves_ZH-CN6851974281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-02
 ![image](https://www.bing.com/th?id=OHR.DenaliDall_ZH-CN9952652691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[迪纳利国家公园里的白大角羊，阿拉斯加 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.DenaliDall_ZH-CN9952652691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-01
