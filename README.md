@@ -1,3 +1,5 @@
+## 2021-12-06
+![image](https://www.bing.com/th?id=OHR.MistyTor_ZH-CN7520952555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[薄雾中的格拉斯顿伯里托尔，英格兰萨默塞特郡 (© DEEPOL by plainpicture/Adam Burton)](https://www.bing.com/th?id=OHR.MistyTor_ZH-CN7520952555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-05
 ![image](https://www.bing.com/th?id=OHR.SalzburgKrampus_ZH-CN7355658592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夜幕下的萨尔察赫河，奥地利萨尔茨堡 (© MacEaton/Alamy)](https://www.bing.com/th?id=OHR.SalzburgKrampus_ZH-CN7355658592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-04
