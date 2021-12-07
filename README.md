@@ -1,3 +1,5 @@
+## 2021-12-07
+![image](https://www.bing.com/th?id=OHR.Koenigsbourg_ZH-CN7675452866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[孚日山脉上的国王城堡，法国阿尔萨斯 (© Leonid Andronov/Shutterstock)](https://www.bing.com/th?id=OHR.Koenigsbourg_ZH-CN7675452866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-06
 ![image](https://www.bing.com/th?id=OHR.MistyTor_ZH-CN7520952555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[薄雾中的格拉斯顿伯里托尔，英格兰萨默塞特郡 (© DEEPOL by plainpicture/Adam Burton)](https://www.bing.com/th?id=OHR.MistyTor_ZH-CN7520952555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-05
