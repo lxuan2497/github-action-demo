@@ -1,3 +1,5 @@
+## 2021-12-10
+![image](https://www.bing.com/th?id=OHR.FoxDovrefjell_ZH-CN9554491452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北极狐，挪威多弗勒山-松达尔国家 (© Andy Trowbridge/Minden Pictures)](https://www.bing.com/th?id=OHR.FoxDovrefjell_ZH-CN9554491452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-09
 ![image](https://www.bing.com/th?id=OHR.GlowWormBMNP_ZH-CN9173680006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝山国家公园里的萤火虫，澳大利亚 (© Leelakajonkij/Getty Images)](https://www.bing.com/th?id=OHR.GlowWormBMNP_ZH-CN9173680006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-08
