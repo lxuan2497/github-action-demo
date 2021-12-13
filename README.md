@@ -1,3 +1,5 @@
+## 2021-12-13
+![image](https://www.bing.com/th?id=OHR.ElPanecilloHill_ZH-CN0527709139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[暮色中的面包山和老城区，厄瓜多尔基多 (© Karol Kozlowski/plainpicture)](https://www.bing.com/th?id=OHR.ElPanecilloHill_ZH-CN0527709139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-12
 ![image](https://www.bing.com/th?id=OHR.WickerCultivation_ZH-CN0310713697_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[别致的柳条田野，西班牙Cañamares (© David Santiago Garcia/Alamy)](https://www.bing.com/th?id=OHR.WickerCultivation_ZH-CN0310713697_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-11
