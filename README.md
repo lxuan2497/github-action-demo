@@ -1,3 +1,5 @@
+## 2021-12-14
+![image](https://www.bing.com/th?id=OHR.AmericanRobin_ZH-CN0667508209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[伫立枝头的旅鸫鸟，加拿大 (© marcophotos/Getty Images)](https://www.bing.com/th?id=OHR.AmericanRobin_ZH-CN0667508209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-13
 ![image](https://www.bing.com/th?id=OHR.ElPanecilloHill_ZH-CN0527709139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[暮色中的面包山和老城区，厄瓜多尔基多 (© Karol Kozlowski/plainpicture)](https://www.bing.com/th?id=OHR.ElPanecilloHill_ZH-CN0527709139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-12
