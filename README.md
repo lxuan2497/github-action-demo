@@ -1,3 +1,5 @@
+## 2021-12-17
+![image](https://www.bing.com/th?id=OHR.XmasBeachHuts_ZH-CN6195800613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣诞主题的海滩小屋，英国伯恩茅斯 (© Allouphoto/Alamy)](https://www.bing.com/th?id=OHR.XmasBeachHuts_ZH-CN6195800613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-16
 ![image](https://www.bing.com/th?id=OHR.WernigerodeWeihnachtsmarkt_ZH-CN1081480865_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[韦尼格罗德的圣诞市场，德国萨克森-安哈尔特州 (© Krzysztof Baranowski/Moment/Getty Images)](https://www.bing.com/th?id=OHR.WernigerodeWeihnachtsmarkt_ZH-CN1081480865_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-15
