@@ -1,3 +1,5 @@
+## 2021-12-18
+![image](https://www.bing.com/th?id=OHR.WinterRoofs_ZH-CN5091303265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔萨斯的葡萄酒村，法国上莱茵省 (© Walter Bibikow/eStock Photo)](https://www.bing.com/th?id=OHR.WinterRoofs_ZH-CN5091303265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-17
 ![image](https://www.bing.com/th?id=OHR.XmasBeachHuts_ZH-CN6195800613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣诞主题的海滩小屋，英国伯恩茅斯 (© Allouphoto/Alamy)](https://www.bing.com/th?id=OHR.XmasBeachHuts_ZH-CN6195800613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-16
