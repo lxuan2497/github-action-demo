@@ -1,3 +1,5 @@
+## 2021-12-20
+![image](https://www.bing.com/th?id=OHR.QuoichBowl_ZH-CN5583756085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Linn of Quoich瀑布旁的碗状岩石洞，苏格兰阿伯丁郡 (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.QuoichBowl_ZH-CN5583756085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-19
 ![image](https://www.bing.com/th?id=OHR.AtigunPassAurora_ZH-CN5486073819_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布鲁克斯山脉上空的极光，美国阿拉斯加州 (© Noppawat Tom Charoensinphon/Getty Images)](https://www.bing.com/th?id=OHR.AtigunPassAurora_ZH-CN5486073819_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-18
