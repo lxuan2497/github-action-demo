@@ -1,3 +1,5 @@
+## 2021-12-21
+![image](https://www.bing.com/th?id=OHR.SiberianSunset_ZH-CN5711093662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[西西伯利亚森林中的阳光，俄罗斯拉杜日内市附近 (© Leonid Ikan/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianSunset_ZH-CN5711093662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-20
 ![image](https://www.bing.com/th?id=OHR.QuoichBowl_ZH-CN5583756085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Linn of Quoich瀑布旁的碗状岩石洞，苏格兰阿伯丁郡 (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.QuoichBowl_ZH-CN5583756085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-19
