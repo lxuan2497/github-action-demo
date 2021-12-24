@@ -1,3 +1,5 @@
+## 2021-12-24
+![image](https://www.bing.com/th?id=OHR.Rauchnachte_ZH-CN6061051054_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[湖畔的一棵小圣诞树，奥地利魏森湖 (© nagelestock/Alamy)](https://www.bing.com/th?id=OHR.Rauchnachte_ZH-CN6061051054_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-23
 ![image](https://www.bing.com/th?id=OHR.ManitobaBears_ZH-CN5877672648_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[两只玩耍的北极熊，加拿大丘吉尔镇 (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.ManitobaBears_ZH-CN5877672648_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-22
