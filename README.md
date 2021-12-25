@@ -1,3 +1,5 @@
+## 2021-12-25
+![image](https://www.bing.com/th?id=OHR.KhomyakMountain_ZH-CN6296455717_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[宛如圣诞精灵的树干，乌克兰喀尔巴阡山脉 (© panaramka/Getty Images)](https://www.bing.com/th?id=OHR.KhomyakMountain_ZH-CN6296455717_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-24
 ![image](https://www.bing.com/th?id=OHR.Rauchnachte_ZH-CN6061051054_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[湖畔的一棵小圣诞树，奥地利魏森湖 (© nagelestock/Alamy)](https://www.bing.com/th?id=OHR.Rauchnachte_ZH-CN6061051054_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-23
