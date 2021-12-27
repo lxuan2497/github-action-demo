@@ -1,3 +1,5 @@
+## 2021-12-27
+![image](https://www.bing.com/th?id=OHR.SnowBuntings_ZH-CN6554424742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[暴雪中成群的雪鹀，美国纽约 (© Marie Read/Minden Pictures)](https://www.bing.com/th?id=OHR.SnowBuntings_ZH-CN6554424742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-26
 ![image](https://www.bing.com/th?id=OHR.SalehurstChurch_ZH-CN6419013724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日光下的村落，英格兰东萨塞克斯郡 (© JohnnyPowell/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.SalehurstChurch_ZH-CN6419013724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-25
