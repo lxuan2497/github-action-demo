@@ -1,3 +1,5 @@
+## 2021-12-28
+![image](https://www.bing.com/th?id=OHR.KjellHenriksen_ZH-CN6626275076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[半球形的谢尔亨里克森天文台，挪威斯瓦尔巴群岛 (© Vincent Fournier/Gallery Stock)](https://www.bing.com/th?id=OHR.KjellHenriksen_ZH-CN6626275076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-27
 ![image](https://www.bing.com/th?id=OHR.SnowBuntings_ZH-CN6554424742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[暴雪中成群的雪鹀，美国纽约 (© Marie Read/Minden Pictures)](https://www.bing.com/th?id=OHR.SnowBuntings_ZH-CN6554424742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-26
