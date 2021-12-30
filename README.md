@@ -1,3 +1,5 @@
+## 2021-12-30
+![image](https://www.bing.com/th?id=OHR.WesterheverLight_ZH-CN6827035695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[星空下的灯塔，德国Westerhever镇 (© Sandra Bartocha/Minden Pictures)](https://www.bing.com/th?id=OHR.WesterheverLight_ZH-CN6827035695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-29
 ![image](https://www.bing.com/th?id=OHR.OreamnosAmericanus_ZH-CN6731612431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[育空地区的落基山羊，加拿大 (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.OreamnosAmericanus_ZH-CN6731612431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-28
