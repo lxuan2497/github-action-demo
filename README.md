@@ -1,3 +1,5 @@
+## 2021-12-31
+![image](https://www.bing.com/th?id=OHR.IcelandBonfire_ZH-CN9270966209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[跨年夜的篝火晚会，冰岛雷克雅未克 (© Ragnar Th Sigurdsson/Alamy)](https://www.bing.com/th?id=OHR.IcelandBonfire_ZH-CN9270966209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-30
 ![image](https://www.bing.com/th?id=OHR.WesterheverLight_ZH-CN6827035695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[星空下的灯塔，德国Westerhever镇 (© Sandra Bartocha/Minden Pictures)](https://www.bing.com/th?id=OHR.WesterheverLight_ZH-CN6827035695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-29
