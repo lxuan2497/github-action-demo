@@ -1,3 +1,5 @@
+## 2022-01-01
+![image](https://www.bing.com/th?id=OHR.JonesBeachHarpSeal_ZH-CN9584238333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[睡在海滩上的竖琴海豹，纽约长岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.JonesBeachHarpSeal_ZH-CN9584238333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-31
 ![image](https://www.bing.com/th?id=OHR.IcelandBonfire_ZH-CN9270966209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[跨年夜的篝火晚会，冰岛雷克雅未克 (© Ragnar Th Sigurdsson/Alamy)](https://www.bing.com/th?id=OHR.IcelandBonfire_ZH-CN9270966209_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-30
