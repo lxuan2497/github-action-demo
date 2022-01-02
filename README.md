@@ -1,3 +1,5 @@
+## 2022-01-02
+![image](https://www.bing.com/th?id=OHR.SnowyPrague_ZH-CN9794475183_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雪后的布拉格，捷克共和国 (© benkrut/Getty Images)](https://www.bing.com/th?id=OHR.SnowyPrague_ZH-CN9794475183_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-01
 ![image](https://www.bing.com/th?id=OHR.JonesBeachHarpSeal_ZH-CN9584238333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[睡在海滩上的竖琴海豹，纽约长岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.JonesBeachHarpSeal_ZH-CN9584238333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2021-12-31
