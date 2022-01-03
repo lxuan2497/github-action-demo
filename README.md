@@ -1,3 +1,5 @@
+## 2022-01-03
+![image](https://www.bing.com/th?id=OHR.LickObservatory_ZH-CN9676762110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[汉密尔顿山顶的利克天文台，美国加利福尼亚州 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LickObservatory_ZH-CN9676762110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-02
 ![image](https://www.bing.com/th?id=OHR.SnowyPrague_ZH-CN9794475183_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雪后的布拉格，捷克共和国 (© benkrut/Getty Images)](https://www.bing.com/th?id=OHR.SnowyPrague_ZH-CN9794475183_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-01
