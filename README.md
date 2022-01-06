@@ -1,3 +1,5 @@
+## 2022-01-06
+![image](https://www.bing.com/th?id=OHR.LakeKochelsee_ZH-CN0004970986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冬日里的科赫尔湖，德国巴伐利亚州 (© Reinhard Schmid/eStock Photo)](https://www.bing.com/th?id=OHR.LakeKochelsee_ZH-CN0004970986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-05
 ![image](https://www.bing.com/th?id=OHR.MountainToucan_ZH-CN9939482570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[树干上的扁嘴山巨嘴鸟，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucan_ZH-CN9939482570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-04
