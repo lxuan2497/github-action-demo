@@ -1,3 +1,5 @@
+## 2022-01-07
+![image](https://www.bing.com/th?id=OHR.FortedeSao_ZH-CN0093358703_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳扎雷灯塔，葡萄牙 (© Richard A Lock/Getty Images)](https://www.bing.com/th?id=OHR.FortedeSao_ZH-CN0093358703_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-06
 ![image](https://www.bing.com/th?id=OHR.LakeKochelsee_ZH-CN0004970986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冬日里的科赫尔湖，德国巴伐利亚州 (© Reinhard Schmid/eStock Photo)](https://www.bing.com/th?id=OHR.LakeKochelsee_ZH-CN0004970986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-05
