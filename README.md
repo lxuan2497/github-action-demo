@@ -1,3 +1,5 @@
+## 2022-01-08
+![image](https://www.bing.com/th?id=OHR.WinterBison_ZH-CN0120689382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄石国家公园的美洲野牛，美国怀俄明州 (© Steve Gettle/Minden Pictures)](https://www.bing.com/th?id=OHR.WinterBison_ZH-CN0120689382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-07
 ![image](https://www.bing.com/th?id=OHR.FortedeSao_ZH-CN0093358703_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳扎雷灯塔，葡萄牙 (© Richard A Lock/Getty Images)](https://www.bing.com/th?id=OHR.FortedeSao_ZH-CN0093358703_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-06
