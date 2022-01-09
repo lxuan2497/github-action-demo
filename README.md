@@ -1,3 +1,5 @@
+## 2022-01-09
+![image](https://www.bing.com/th?id=OHR.RiceBangladesh_ZH-CN0196473460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[正在晾晒的大米，孟加拉国达卡 (© Amazing Aerial Agency/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.RiceBangladesh_ZH-CN0196473460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-08
 ![image](https://www.bing.com/th?id=OHR.WinterBison_ZH-CN0120689382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄石国家公园的美洲野牛，美国怀俄明州 (© Steve Gettle/Minden Pictures)](https://www.bing.com/th?id=OHR.WinterBison_ZH-CN0120689382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-07
