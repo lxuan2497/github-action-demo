@@ -1,3 +1,5 @@
+## 2022-01-10
+![image](https://www.bing.com/th?id=OHR.SkiTouring_ZH-CN0237169285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在高地陶恩山脉的滑雪旅行，奥地利巴德加斯坦 (© RooM the Agency/Alamy)](https://www.bing.com/th?id=OHR.SkiTouring_ZH-CN0237169285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-09
 ![image](https://www.bing.com/th?id=OHR.RiceBangladesh_ZH-CN0196473460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[正在晾晒的大米，孟加拉国达卡 (© Amazing Aerial Agency/Offset by Shutterstock)](https://www.bing.com/th?id=OHR.RiceBangladesh_ZH-CN0196473460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-08
