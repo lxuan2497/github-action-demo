@@ -1,3 +1,5 @@
+## 2022-01-12
+![image](https://www.bing.com/th?id=OHR.FanjingStairs_ZH-CN0360402048_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[梵净山，中国西南部 (© zhuxiaophotography/Shutterstock)](https://www.bing.com/th?id=OHR.FanjingStairs_ZH-CN0360402048_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-11
 ![image](https://www.bing.com/th?id=OHR.PorcupineWillow_ZH-CN0280041973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[爬上柳树枝头的豪猪，美国阿拉斯加 (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.PorcupineWillow_ZH-CN0280041973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-10
