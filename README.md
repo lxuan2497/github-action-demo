@@ -1,3 +1,5 @@
+## 2022-01-15
+![image](https://www.bing.com/th?id=OHR.BigHole_ZH-CN2671071218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[苏阿海沟，萨摩亚乌波卢岛南海岸 (© Chris McLennan/Alamy)](https://www.bing.com/th?id=OHR.BigHole_ZH-CN2671071218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-14
 ![image](https://www.bing.com/th?id=OHR.SaCalobra_ZH-CN0945855556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[通往萨卡洛布拉湾的路，西班牙马约卡岛 (© Tolo Balaguer/agefotostock)](https://www.bing.com/th?id=OHR.SaCalobra_ZH-CN0945855556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-13
