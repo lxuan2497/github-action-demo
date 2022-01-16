@@ -1,3 +1,5 @@
+## 2022-01-16
+![image](https://www.bing.com/th?id=OHR.BoguraChili_ZH-CN2707755390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[农场上晾晒的红辣椒，孟加拉国博格拉县 (© Amazing Aerial Agency/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.BoguraChili_ZH-CN2707755390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-15
 ![image](https://www.bing.com/th?id=OHR.BigHole_ZH-CN2671071218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[苏阿海沟，萨摩亚乌波卢岛南海岸 (© Chris McLennan/Alamy)](https://www.bing.com/th?id=OHR.BigHole_ZH-CN2671071218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-14
