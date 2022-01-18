@@ -1,3 +1,5 @@
+## 2022-01-18
+![image](https://www.bing.com/th?id=OHR.BurghausenWinter_ZH-CN2822501718_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[博格豪森镇和萨尔察赫河，德国巴伐利亚州 (© Harald Nachtmann/Moment/Getty Images)](https://www.bing.com/th?id=OHR.BurghausenWinter_ZH-CN2822501718_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-17
 ![image](https://www.bing.com/th?id=OHR.RydalWater_ZH-CN2787617470_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[莱达尔湖, 英格兰坎布里亚郡湖区 (© Tranquillian1/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RydalWater_ZH-CN2787617470_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-16
