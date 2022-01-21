@@ -1,3 +1,5 @@
+## 2022-01-21
+![image](https://www.bing.com/th?id=OHR.HuggingDay_ZH-CN2984681593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[草丛中的母狮和它的幼崽，南非 (© Andrew Coleman/Getty Images)](https://www.bing.com/th?id=OHR.HuggingDay_ZH-CN2984681593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-20
 ![image](https://www.bing.com/th?id=OHR.GrahamAdelie_ZH-CN2945763969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格雷厄姆海峡的阿德利企鹅，南极洲南极半岛 (© Nick Garbutt/Minden Pictures)](https://www.bing.com/th?id=OHR.GrahamAdelie_ZH-CN2945763969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-19
