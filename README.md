@@ -1,3 +1,5 @@
+## 2022-01-23
+![image](https://www.bing.com/th?id=OHR.MeotoIwa_ZH-CN3126370410_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海岸旁的二见浦夫妇岩，日本三重县 (© Marco Gaiotti/plainpicture)](https://www.bing.com/th?id=OHR.MeotoIwa_ZH-CN3126370410_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-22
 ![image](https://www.bing.com/th?id=OHR.LesserAntilles_ZH-CN3012679657_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蔚蓝海域中的马提尼克岛，加勒比海 (© Airpano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.LesserAntilles_ZH-CN3012679657_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-21
