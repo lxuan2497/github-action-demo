@@ -1,3 +1,5 @@
+## 2022-01-30
+![image](https://www.bing.com/th?id=OHR.WinterHalo_ZH-CN0666553211_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[厄尔士山脉上的光晕，德国萨克森州 (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.WinterHalo_ZH-CN0666553211_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-29
 ![image](https://www.bing.com/th?id=OHR.BrainCoral_ZH-CN8354100992_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加勒比海的片脑纹珊瑚，开曼群岛 (© Alex Mustard/Minden Pictures)](https://www.bing.com/th?id=OHR.BrainCoral_ZH-CN8354100992_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-28
