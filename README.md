@@ -1,3 +1,5 @@
+## 2022-02-01
+![image](https://www.bing.com/th?id=OHR.ChineseNewYear_ZH-CN5844255626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[寓意幸福和团圆的春节灯笼，中国 (© d3sign/Moment/Getty Images)](https://www.bing.com/th?id=OHR.ChineseNewYear_ZH-CN5844255626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-31
 ![image](https://www.bing.com/th?id=OHR.ChineseNewYearEve_ZH-CN1901922324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[烟花绽放的除夕夜，中国 (© MediaProduction/E+/Getty Images)](https://www.bing.com/th?id=OHR.ChineseNewYearEve_ZH-CN1901922324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-30
