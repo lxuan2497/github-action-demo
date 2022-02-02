@@ -1,3 +1,5 @@
+## 2022-02-02
+![image](https://www.bing.com/th?id=OHR.GHDMarmot_ZH-CN5983212280_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔卑斯旱獭，奥地利陶恩山国家公园 (© Misja Smits/Minden Pictures)](https://www.bing.com/th?id=OHR.GHDMarmot_ZH-CN5983212280_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-01
 ![image](https://www.bing.com/th?id=OHR.ChineseNewYear_ZH-CN5844255626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[寓意幸福和团圆的春节灯笼，中国 (© d3sign/Moment/Getty Images)](https://www.bing.com/th?id=OHR.ChineseNewYear_ZH-CN5844255626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-01-31
