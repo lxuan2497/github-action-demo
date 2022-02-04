@@ -1,3 +1,5 @@
+## 2022-02-04
+![image](https://www.bing.com/th?id=OHR.WinterOlymics_ZH-CN7384614076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[亚运村夜景，北京 (© ViewStock/Getty Images)](https://www.bing.com/th?id=OHR.WinterOlymics_ZH-CN7384614076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-03
 ![image](https://www.bing.com/th?id=OHR.FortCorjuem_ZH-CN7295613217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Corjuem堡垒，印度果阿邦 (© Ingvar Kuznetsov/Shutterstock)](https://www.bing.com/th?id=OHR.FortCorjuem_ZH-CN7295613217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-02
