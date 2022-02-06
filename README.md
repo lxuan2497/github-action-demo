@@ -1,3 +1,5 @@
+## 2022-02-06
+![image](https://www.bing.com/th?id=OHR.Oymyakon_ZH-CN7758768574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥伊米亚康的冬天，俄罗斯 (© Alexandr Berdicevschi/Getty Images)](https://www.bing.com/th?id=OHR.Oymyakon_ZH-CN7758768574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-05
 ![image](https://www.bing.com/th?id=OHR.MexicoMonarchs_ZH-CN7526758236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[漫天飞舞的黑脉金斑蝶，墨西哥 (© Sylvain Cordier/Minden Pictures)](https://www.bing.com/th?id=OHR.MexicoMonarchs_ZH-CN7526758236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-04
