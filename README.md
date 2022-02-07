@@ -1,3 +1,5 @@
+## 2022-02-07
+![image](https://www.bing.com/th?id=OHR.WinterludeIce_ZH-CN7868524911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冰雪节上的冰雕艺术作品，加拿大渥太华 (© S. Garcia Cournoyer/Alamy)](https://www.bing.com/th?id=OHR.WinterludeIce_ZH-CN7868524911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-06
 ![image](https://www.bing.com/th?id=OHR.Oymyakon_ZH-CN7758768574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥伊米亚康的冬天，俄罗斯 (© Alexandr Berdicevschi/Getty Images)](https://www.bing.com/th?id=OHR.Oymyakon_ZH-CN7758768574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-05
