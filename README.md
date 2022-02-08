@@ -1,3 +1,5 @@
+## 2022-02-08
+![image](https://www.bing.com/th?id=OHR.SpeloncatoSnow_ZH-CN8115437163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科西嘉岛上的Speloncato市，法国 (© Jon Ingall/Alamy)](https://www.bing.com/th?id=OHR.SpeloncatoSnow_ZH-CN8115437163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-07
 ![image](https://www.bing.com/th?id=OHR.WinterludeIce_ZH-CN7868524911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冰雪节上的冰雕艺术作品，加拿大渥太华 (© S. Garcia Cournoyer/Alamy)](https://www.bing.com/th?id=OHR.WinterludeIce_ZH-CN7868524911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-06
