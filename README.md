@@ -1,3 +1,5 @@
+## 2022-02-11
+![image](https://www.bing.com/th?id=OHR.TeaGardensMunnar_ZH-CN9587720369_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[慕那尔山区的茶园，印度喀拉拉邦 (© SvitlanaBelinska/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.TeaGardensMunnar_ZH-CN9587720369_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-10
 ![image](https://www.bing.com/th?id=OHR.SnowyBern_ZH-CN5472524801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[静谧的伯尔尼古城区，瑞士 (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.SnowyBern_ZH-CN5472524801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-09
