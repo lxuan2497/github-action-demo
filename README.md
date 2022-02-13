@@ -1,3 +1,5 @@
+## 2022-02-13
+![image](https://www.bing.com/th?id=OHR.FaceOff_ZH-CN9969100257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄石国家公园的美洲野牛，美国怀俄明州 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.FaceOff_ZH-CN9969100257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-12
 ![image](https://www.bing.com/th?id=OHR.DarwinsArch_ZH-CN9740478501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[达尔文岛的达尔文拱门，厄瓜多尔加拉帕戈斯 (© miralex/Getty Images)](https://www.bing.com/th?id=OHR.DarwinsArch_ZH-CN9740478501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-11
