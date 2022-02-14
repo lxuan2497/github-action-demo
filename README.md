@@ -1,3 +1,5 @@
+## 2022-02-14
+![image](https://www.bing.com/th?id=OHR.MaldivesHeart_ZH-CN0032539727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[心形小岛和白沙滩，印度洋马尔代夫 (© Willyam Bradberry/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesHeart_ZH-CN0032539727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-13
 ![image](https://www.bing.com/th?id=OHR.FaceOff_ZH-CN9969100257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄石国家公园的美洲野牛，美国怀俄明州 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.FaceOff_ZH-CN9969100257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-12
