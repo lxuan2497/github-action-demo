@@ -1,3 +1,5 @@
+## 2022-02-16
+![image](https://www.bing.com/th?id=OHR.CranborneChase_ZH-CN0337426199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[白霜覆盖下的山毛榉林，英格兰多塞特郡 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.CranborneChase_ZH-CN0337426199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-15
 ![image](https://www.bing.com/th?id=OHR.Latern2022_ZH-CN0112710917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[成都街头的红灯笼，中国四川省（© kiszon pascal/Moment/Getty Images）](https://www.bing.com/th?id=OHR.Latern2022_ZH-CN0112710917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-02-14
