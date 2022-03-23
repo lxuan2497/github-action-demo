@@ -1,3 +1,5 @@
+## 2022-03-23
+![image](https://www.bing.com/th?id=OHR.GCThunderstorm_ZH-CN7535350453_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雷暴下的大峡谷国家公园，亚利桑那州 (© spkeelin/Getty Images)](https://www.bing.com/th?id=OHR.GCThunderstorm_ZH-CN7535350453_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-03-22
 ![image](https://www.bing.com/th?id=OHR.ThousandSprings_ZH-CN7431323804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[千泉州立公园的瀑布，美国爱达荷州 (© knowlesgallery/Getty Images)](https://www.bing.com/th?id=OHR.ThousandSprings_ZH-CN7431323804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-03-21
