@@ -1,3 +1,5 @@
+## 2022-04-01
+![image](https://www.bing.com/th?id=OHR.HawaMahalJaipur_ZH-CN3863273823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈瓦泰姬陵，印度拉贾斯坦邦，斋浦尔市 (© Mazur Travel/Shutterstock)](https://www.bing.com/th?id=OHR.HawaMahalJaipur_ZH-CN3863273823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-03-31
 ![image](https://www.bing.com/th?id=OHR.AnniEiffel_ZH-CN8273124420_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[埃菲尔铁塔，法国巴黎 (© Susanne Kremer/eStock Photo)](https://www.bing.com/th?id=OHR.AnniEiffel_ZH-CN8273124420_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-03-30
