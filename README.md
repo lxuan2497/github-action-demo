@@ -1,3 +1,5 @@
+## 2022-04-02
+![image](https://www.bing.com/th?id=OHR.WhangareiFalls_ZH-CN9150162556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[旺阿雷自然保护区里的旺阿雷瀑布，新西兰北岛 (© Nathan Kavumbura/Getty Images)](https://www.bing.com/th?id=OHR.WhangareiFalls_ZH-CN9150162556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-01
 ![image](https://www.bing.com/th?id=OHR.HawaMahalJaipur_ZH-CN3863273823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈瓦泰姬陵，印度拉贾斯坦邦，斋浦尔市 (© Mazur Travel/Shutterstock)](https://www.bing.com/th?id=OHR.HawaMahalJaipur_ZH-CN3863273823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-03-31
