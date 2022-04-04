@@ -1,3 +1,5 @@
+## 2022-04-04
+![image](https://www.bing.com/th?id=OHR.NorwayBoulder_ZH-CN8749661500_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[裂缝中的谢拉格伯顿石，挪威谢格拉山 (© Angel FAyE/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBoulder_ZH-CN8749661500_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-03
 ![image](https://www.bing.com/th?id=OHR.TaihuCherry_ZH-CN9040685764_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[太湖边盛开的樱花，无锡 (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.TaihuCherry_ZH-CN9040685764_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-02
