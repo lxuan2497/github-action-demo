@@ -1,3 +1,5 @@
+## 2022-04-08
+![image](https://www.bing.com/th?id=OHR.PontaDelgada_ZH-CN8596828822_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓬塔德尔加达附近的海岸，葡萄牙 (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PontaDelgada_ZH-CN8596828822_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-07
 ![image](https://www.bing.com/th?id=OHR.Malaga_ZH-CN9644862917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄昏下的马拉加老城，西班牙 (© Sean Pavone Photo/Getty Images)](https://www.bing.com/th?id=OHR.Malaga_ZH-CN9644862917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-06
