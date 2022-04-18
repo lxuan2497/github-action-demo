@@ -1,3 +1,5 @@
+## 2022-04-18
+![image](https://www.bing.com/th?id=OHR.SquareTowerHouse_ZH-CN1203640326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[梅萨维德国家公园的方形塔楼，美国科罗拉多州 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SquareTowerHouse_ZH-CN1203640326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-17
 ![image](https://www.bing.com/th?id=OHR.RobinsEgg_ZH-CN0838507211_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝色的美洲知更鸟蛋，新泽西州 (© Mira/Alamy)](https://www.bing.com/th?id=OHR.RobinsEgg_ZH-CN0838507211_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-16
