@@ -1,3 +1,5 @@
+## 2022-04-19
+![image](https://www.bing.com/th?id=OHR.PlitviceBoardwalk_ZH-CN1370384104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[十六湖国家公园，克罗地亚 (© Janne Kahila/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceBoardwalk_ZH-CN1370384104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-18
 ![image](https://www.bing.com/th?id=OHR.SquareTowerHouse_ZH-CN1203640326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[梅萨维德国家公园的方形塔楼，美国科罗拉多州 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SquareTowerHouse_ZH-CN1203640326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-17
