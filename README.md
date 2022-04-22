@@ -1,3 +1,5 @@
+## 2022-04-22
+![image](https://www.bing.com/th?id=OHR.EarthDay2022_ZH-CN5733809629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡鲁拉国家公园里的小湖，爱沙尼亚 (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDay2022_ZH-CN5733809629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-21
 ![image](https://www.bing.com/th?id=OHR.IcelandicSummer_ZH-CN1779278033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在公路上吃草的绵羊，冰岛 (© Matthew Kuhns/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandicSummer_ZH-CN1779278033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-20
