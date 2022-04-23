@@ -1,3 +1,5 @@
+## 2022-04-23
+![image](https://www.bing.com/th?id=OHR.VictoriaMemorialKolkata_ZH-CN5801450386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[维多利亚纪念堂，印度加尔各答 (© Roop_Dey/Shutterstock)](https://www.bing.com/th?id=OHR.VictoriaMemorialKolkata_ZH-CN5801450386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-22
 ![image](https://www.bing.com/th?id=OHR.EarthDay2022_ZH-CN5733809629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡鲁拉国家公园里的小湖，爱沙尼亚 (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDay2022_ZH-CN5733809629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-21
