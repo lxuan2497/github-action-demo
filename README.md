@@ -1,3 +1,5 @@
+## 2022-04-27
+![image](https://www.bing.com/th?id=OHR.SvalbardSun_ZH-CN6108396467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[午夜的太阳，挪威斯瓦尔巴群岛 (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.SvalbardSun_ZH-CN6108396467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-26
 ![image](https://www.bing.com/th?id=OHR.Hunebourg_ZH-CN6038786751_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[下莱茵省的胡内城堡，法国阿尔萨斯大区 (© Leonid Andronov/Alamy)](https://www.bing.com/th?id=OHR.Hunebourg_ZH-CN6038786751_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-25
