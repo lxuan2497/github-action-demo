@@ -1,3 +1,5 @@
+## 2022-05-02
+![image](https://www.bing.com/th?id=OHR.TravertineTurkey_ZH-CN6430409651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[土耳其棉花堡的石灰华梯田 (© bybostanci/Getty Images)](https://www.bing.com/th?id=OHR.TravertineTurkey_ZH-CN6430409651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-01
 ![image](https://www.bing.com/th?id=OHR.VanBlooms_ZH-CN6370306779_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[盛开的金链花树和紫色葱属植物，加拿大温哥华范度森植物园 (© Greg Vaughn/Alamy)](https://www.bing.com/th?id=OHR.VanBlooms_ZH-CN6370306779_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-04-30
