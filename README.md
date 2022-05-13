@@ -1,3 +1,5 @@
+## 2022-05-13
+![image](https://www.bing.com/th?id=OHR.MaasaiGiraffe_ZH-CN2960157829_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只马赛长颈鹿，肯尼亚马赛马拉国家保护区 (© Andy Rouse/Minden Pictures)](https://www.bing.com/th?id=OHR.MaasaiGiraffe_ZH-CN2960157829_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-12
 ![image](https://www.bing.com/th?id=OHR.RiverBrathay_ZH-CN2718424663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布拉塞河上的雾天黎明，英国湖区国家公园 (© fstopphotography/Getty Images)](https://www.bing.com/th?id=OHR.RiverBrathay_ZH-CN2718424663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-11
