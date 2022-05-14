@@ -1,3 +1,5 @@
+## 2022-05-14
+![image](https://www.bing.com/th?id=OHR.WindmillDay_ZH-CN3115996668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[金德代克风车群，荷兰 (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.WindmillDay_ZH-CN3115996668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-13
 ![image](https://www.bing.com/th?id=OHR.MaasaiGiraffe_ZH-CN2960157829_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只马赛长颈鹿，肯尼亚马赛马拉国家保护区 (© Andy Rouse/Minden Pictures)](https://www.bing.com/th?id=OHR.MaasaiGiraffe_ZH-CN2960157829_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-12
