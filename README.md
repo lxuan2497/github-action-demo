@@ -1,3 +1,5 @@
+## 2022-05-28
+![image](https://www.bing.com/th?id=OHR.PurnululuNP_ZH-CN0102753224_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[波奴鲁鲁国家公园里的邦格尔邦格尔山脉，澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.PurnululuNP_ZH-CN0102753224_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-27
 ![image](https://www.bing.com/th?id=OHR.MarinHeadlands_ZH-CN9876016714_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[金门大桥和马林岬角，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MarinHeadlands_ZH-CN9876016714_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-26
