@@ -1,3 +1,5 @@
+## 2022-06-01
+![image](https://www.bing.com/th?id=OHR.MarovoLagoon_ZH-CN1029152514_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马罗沃泻湖中的珊瑚礁，所罗门群岛 (© WaterFrame/Alamy)](https://www.bing.com/th?id=OHR.MarovoLagoon_ZH-CN1029152514_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-31
 ![image](https://www.bing.com/th?id=OHR.ParrotDay_ZH-CN0775936218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[展开双翅的绯红金刚鹦鹉，哥斯达黎加 (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.ParrotDay_ZH-CN0775936218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-30
