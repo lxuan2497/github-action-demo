@@ -1,3 +1,5 @@
+## 2022-06-02
+![image](https://www.bing.com/th?id=OHR.LechfallFuessen_ZH-CN3887501600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[福森市的莱西瀑布，德国拜仁州 (© Sergej Razvod/agefotostock)](https://www.bing.com/th?id=OHR.LechfallFuessen_ZH-CN3887501600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-01
 ![image](https://www.bing.com/th?id=OHR.MarovoLagoon_ZH-CN1029152514_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马罗沃泻湖中的珊瑚礁，所罗门群岛 (© WaterFrame/Alamy)](https://www.bing.com/th?id=OHR.MarovoLagoon_ZH-CN1029152514_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-05-31
