@@ -1,3 +1,5 @@
+## 2022-06-05
+![image](https://www.bing.com/th?id=OHR.RapadalenSNP_ZH-CN3018224759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨勒克国家公园的拉帕谷，瑞典 (© Alena Vishina/Alamy)](https://www.bing.com/th?id=OHR.RapadalenSNP_ZH-CN3018224759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-04
 ![image](https://www.bing.com/th?id=OHR.BannerPeak_ZH-CN2693006060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安塞尔·亚当斯的荒野，加利福尼亚 (© Michael DeYoung Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BannerPeak_ZH-CN2693006060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-03
