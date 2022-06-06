@@ -1,3 +1,5 @@
+## 2022-06-06
+![image](https://www.bing.com/th?id=OHR.IndigoBunting_ZH-CN3172415219_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥杜邦中心的一只靛蓝彩鹀，美国宾夕法尼亚州 (© Vicki Jauron/Getty Images)](https://www.bing.com/th?id=OHR.IndigoBunting_ZH-CN3172415219_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-05
 ![image](https://www.bing.com/th?id=OHR.RapadalenSNP_ZH-CN3018224759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨勒克国家公园的拉帕谷，瑞典 (© Alena Vishina/Alamy)](https://www.bing.com/th?id=OHR.RapadalenSNP_ZH-CN3018224759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-04
