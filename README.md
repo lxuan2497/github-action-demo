@@ -1,3 +1,5 @@
+## 2022-06-07
+![image](https://www.bing.com/th?id=OHR.HaagaRhododendron_ZH-CN3375001658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[赫尔辛基的哈加杜鹃花公园，芬兰 (© Samuli Vainionpää/Getty Images)](https://www.bing.com/th?id=OHR.HaagaRhododendron_ZH-CN3375001658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-06
 ![image](https://www.bing.com/th?id=OHR.IndigoBunting_ZH-CN3172415219_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥杜邦中心的一只靛蓝彩鹀，美国宾夕法尼亚州 (© Vicki Jauron/Getty Images)](https://www.bing.com/th?id=OHR.IndigoBunting_ZH-CN3172415219_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-05
