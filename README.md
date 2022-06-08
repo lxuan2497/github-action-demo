@@ -1,3 +1,5 @@
+## 2022-06-08
+![image](https://www.bing.com/th?id=OHR.CommonDolphin_ZH-CN3524729916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[正在狩猎太平洋沙丁鱼的长吻真海豚和南非鲣鸟，南非东开普省 (© Pete Oxford/Minden Pictures)](https://www.bing.com/th?id=OHR.CommonDolphin_ZH-CN3524729916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-07
 ![image](https://www.bing.com/th?id=OHR.HaagaRhododendron_ZH-CN3375001658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[赫尔辛基的哈加杜鹃花公园，芬兰 (© Samuli Vainionpää/Getty Images)](https://www.bing.com/th?id=OHR.HaagaRhododendron_ZH-CN3375001658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-06
