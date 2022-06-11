@@ -1,3 +1,5 @@
+## 2022-06-11
+![image](https://www.bing.com/th?id=OHR.MisoolIsland_ZH-CN9038691748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[米苏尔岛，拉贾安帕特群岛中的岛屿，印度尼西亚 (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.MisoolIsland_ZH-CN9038691748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-10
 ![image](https://www.bing.com/th?id=OHR.SpottedDeers_ZH-CN8790816034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斑鹿，滕波尔国家公园，印度 (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.SpottedDeers_ZH-CN8790816034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-09
