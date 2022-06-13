@@ -1,3 +1,5 @@
+## 2022-06-13
+![image](https://www.bing.com/th?id=OHR.OkavangoElephant_ZH-CN0058670579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[行走在奥卡万戈河中的大象，博茨瓦纳，非洲南部 (© Markus Pavlowsky/Getty Images)](https://www.bing.com/th?id=OHR.OkavangoElephant_ZH-CN0058670579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-12
 ![image](https://www.bing.com/th?id=OHR.SierraPonce_ZH-CN9720358958_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大弯曲国家公园的塞拉庞塞和格兰德河边的悬崖，美国得克萨斯州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.SierraPonce_ZH-CN9720358958_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-11
