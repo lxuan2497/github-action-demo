@@ -1,3 +1,5 @@
+## 2022-06-14
+![image](https://www.bing.com/th?id=OHR.MuseumMile_ZH-CN0641581371_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纽约大都会艺术博物馆 (© Susanne Pommer/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumMile_ZH-CN0641581371_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-13
 ![image](https://www.bing.com/th?id=OHR.OkavangoElephant_ZH-CN0058670579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[行走在奥卡万戈河中的大象，博茨瓦纳，非洲南部 (© Markus Pavlowsky/Getty Images)](https://www.bing.com/th?id=OHR.OkavangoElephant_ZH-CN0058670579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-12
