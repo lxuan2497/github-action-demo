@@ -1,3 +1,5 @@
+## 2022-06-17
+![image](https://www.bing.com/th?id=OHR.Balsamroot_ZH-CN9456182640_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[山下盛开的箭叶脂根菊，美国大提顿国家公园 (© Mike Cavaroc/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Balsamroot_ZH-CN9456182640_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-16
 ![image](https://www.bing.com/th?id=OHR.SeonamTemple_ZH-CN3460236076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[仙岩寺中的升仙桥，韩国曹溪山道立公园 (© Aaron Choi/Getty Images)](https://www.bing.com/th?id=OHR.SeonamTemple_ZH-CN3460236076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-15
