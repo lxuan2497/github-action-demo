@@ -1,3 +1,5 @@
+## 2022-06-18
+![image](https://www.bing.com/th?id=OHR.CelebratingSurfing_ZH-CN9747833506_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄金海岸上的冲浪者，澳大利亚 (© Darren Tierney/Getty Images)](https://www.bing.com/th?id=OHR.CelebratingSurfing_ZH-CN9747833506_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-17
 ![image](https://www.bing.com/th?id=OHR.Balsamroot_ZH-CN9456182640_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[山下盛开的箭叶脂根菊，美国大提顿国家公园 (© Mike Cavaroc/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Balsamroot_ZH-CN9456182640_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-16
