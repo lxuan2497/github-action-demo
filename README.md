@@ -1,3 +1,5 @@
+## 2022-06-19
+![image](https://www.bing.com/th?id=OHR.Cassowary_ZH-CN9903525394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[双垂鹤鸵爸爸和它的宝宝们，澳大利亚 (© Martin Willis/Minden Pictures)](https://www.bing.com/th?id=OHR.Cassowary_ZH-CN9903525394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-18
 ![image](https://www.bing.com/th?id=OHR.CelebratingSurfing_ZH-CN9747833506_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄金海岸上的冲浪者，澳大利亚 (© Darren Tierney/Getty Images)](https://www.bing.com/th?id=OHR.CelebratingSurfing_ZH-CN9747833506_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-17
