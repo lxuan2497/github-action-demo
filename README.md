@@ -1,3 +1,5 @@
+## 2022-06-21
+![image](https://www.bing.com/th?id=OHR.GlastonburySolstice_ZH-CN9694169797_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格拉斯顿伯里山丘上的日出，英格兰 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.GlastonburySolstice_ZH-CN9694169797_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-20
 ![image](https://www.bing.com/th?id=OHR.SwallowtailFlower_ZH-CN5950463168_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[停在同一朵花上的两只金凤蝶 (© Alberto Ghizzi Panizza/Getty Images)](https://www.bing.com/th?id=OHR.SwallowtailFlower_ZH-CN5950463168_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-19
