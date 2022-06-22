@@ -1,3 +1,5 @@
+## 2022-06-22
+![image](https://www.bing.com/th?id=OHR.AmazonianEcuador_ZH-CN9873999948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[亚苏尼国家公园，厄瓜多尔 (© Paul Bertner/Minden Pictures)](https://www.bing.com/th?id=OHR.AmazonianEcuador_ZH-CN9873999948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-21
 ![image](https://www.bing.com/th?id=OHR.GlastonburySolstice_ZH-CN9694169797_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格拉斯顿伯里山丘上的日出，英格兰 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.GlastonburySolstice_ZH-CN9694169797_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-20
