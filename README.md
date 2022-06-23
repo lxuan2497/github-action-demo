@@ -1,3 +1,5 @@
+## 2022-06-23
+![image](https://www.bing.com/th?id=OHR.MostarBridge_ZH-CN5920156936_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[莫斯塔尔古桥，波斯尼亚和黑塞哥维那 (© Ayhan Altun/Getty Images)](https://www.bing.com/th?id=OHR.MostarBridge_ZH-CN5920156936_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-22
 ![image](https://www.bing.com/th?id=OHR.AmazonianEcuador_ZH-CN9873999948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[亚苏尼国家公园，厄瓜多尔 (© Paul Bertner/Minden Pictures)](https://www.bing.com/th?id=OHR.AmazonianEcuador_ZH-CN9873999948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-21
