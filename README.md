@@ -1,3 +1,5 @@
+## 2022-06-24
+![image](https://www.bing.com/th?id=OHR.CenoteDiver_ZH-CN7334440742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[潜水员探索文图拉斯港附近的水下天然井，墨西哥 (© Extreme Photographer/Getty Images)](https://www.bing.com/th?id=OHR.CenoteDiver_ZH-CN7334440742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-23
 ![image](https://www.bing.com/th?id=OHR.MostarBridge_ZH-CN5920156936_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[莫斯塔尔古桥，波斯尼亚和黑塞哥维那 (© Ayhan Altun/Getty Images)](https://www.bing.com/th?id=OHR.MostarBridge_ZH-CN5920156936_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-22
