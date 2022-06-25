@@ -1,3 +1,5 @@
+## 2022-06-25
+![image](https://www.bing.com/th?id=OHR.BBMomCub_ZH-CN7715738841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡特迈国家公园和保护区的棕熊妈妈和幼崽，阿拉斯加 (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BBMomCub_ZH-CN7715738841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-24
 ![image](https://www.bing.com/th?id=OHR.CenoteDiver_ZH-CN7334440742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[潜水员探索文图拉斯港附近的水下天然井，墨西哥 (© Extreme Photographer/Getty Images)](https://www.bing.com/th?id=OHR.CenoteDiver_ZH-CN7334440742_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-23
