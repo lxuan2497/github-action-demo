@@ -1,3 +1,5 @@
+## 2022-06-26
+![image](https://www.bing.com/th?id=OHR.KoalaSleeping_ZH-CN8369657308_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只正在树上睡觉的考拉 (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.KoalaSleeping_ZH-CN8369657308_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-25
 ![image](https://www.bing.com/th?id=OHR.BBMomCub_ZH-CN7715738841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡特迈国家公园和保护区的棕熊妈妈和幼崽，阿拉斯加 (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BBMomCub_ZH-CN7715738841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-24
