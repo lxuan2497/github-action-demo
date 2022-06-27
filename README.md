@@ -1,3 +1,5 @@
+## 2022-06-27
+![image](https://www.bing.com/th?id=OHR.ValensoleLavender_ZH-CN8778885260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普罗旺斯瓦朗索勒高原上的薰衣草田，法国 (© Shutterstock)](https://www.bing.com/th?id=OHR.ValensoleLavender_ZH-CN8778885260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-26
 ![image](https://www.bing.com/th?id=OHR.KoalaSleeping_ZH-CN8369657308_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只正在树上睡觉的考拉 (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.KoalaSleeping_ZH-CN8369657308_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-25
