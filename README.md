@@ -1,3 +1,5 @@
+## 2022-06-28
+![image](https://www.bing.com/th?id=OHR.TafilaletOasis_ZH-CN9143950935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塔菲拉勒地区的一座古老古堡, 摩洛哥 (© José Antonio Moreno/agefotostock)](https://www.bing.com/th?id=OHR.TafilaletOasis_ZH-CN9143950935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-27
 ![image](https://www.bing.com/th?id=OHR.ValensoleLavender_ZH-CN8778885260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普罗旺斯瓦朗索勒高原上的薰衣草田，法国 (© Shutterstock)](https://www.bing.com/th?id=OHR.ValensoleLavender_ZH-CN8778885260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-26
