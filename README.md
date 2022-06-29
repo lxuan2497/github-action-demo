@@ -1,3 +1,5 @@
+## 2022-06-29
+![image](https://www.bing.com/th?id=OHR.PhangNgaBay_ZH-CN9408705933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[攀牙湾安达曼海的红树林，泰国 (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.PhangNgaBay_ZH-CN9408705933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-28
 ![image](https://www.bing.com/th?id=OHR.TafilaletOasis_ZH-CN9143950935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塔菲拉勒地区的一座古老古堡, 摩洛哥 (© José Antonio Moreno/agefotostock)](https://www.bing.com/th?id=OHR.TafilaletOasis_ZH-CN9143950935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-27
