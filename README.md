@@ -1,3 +1,5 @@
+## 2022-06-30
+![image](https://www.bing.com/th?id=OHR.CoteSauvage_ZH-CN9967984163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[基伯龙半岛上的海滩，法国布列塔尼地区 (© hardyun/Adobe)](https://www.bing.com/th?id=OHR.CoteSauvage_ZH-CN9967984163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-29
 ![image](https://www.bing.com/th?id=OHR.PhangNgaBay_ZH-CN9408705933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[攀牙湾安达曼海的红树林，泰国 (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.PhangNgaBay_ZH-CN9408705933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-28
