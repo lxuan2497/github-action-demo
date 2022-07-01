@@ -1,3 +1,5 @@
+## 2022-07-01
+![image](https://www.bing.com/th?id=OHR.AgueroVillage_ZH-CN1007741117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿圭罗村庄, 韦斯卡, 西班牙 (© Francesco Carovillano/eStock)](https://www.bing.com/th?id=OHR.AgueroVillage_ZH-CN1007741117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-30
 ![image](https://www.bing.com/th?id=OHR.CoteSauvage_ZH-CN9967984163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[基伯龙半岛上的海滩，法国布列塔尼地区 (© hardyun/Adobe)](https://www.bing.com/th?id=OHR.CoteSauvage_ZH-CN9967984163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-29
