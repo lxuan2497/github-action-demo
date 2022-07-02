@@ -1,3 +1,5 @@
+## 2022-07-02
+![image](https://www.bing.com/th?id=OHR.HalfwayDay_ZH-CN1333459630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[分隔两个湖泊的公路，苏格兰高地 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayDay_ZH-CN1333459630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-01
 ![image](https://www.bing.com/th?id=OHR.AgueroVillage_ZH-CN1007741117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿圭罗村庄, 韦斯卡, 西班牙 (© Francesco Carovillano/eStock)](https://www.bing.com/th?id=OHR.AgueroVillage_ZH-CN1007741117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-06-30
