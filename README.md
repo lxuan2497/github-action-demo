@@ -1,3 +1,5 @@
+## 2022-07-03
+![image](https://www.bing.com/th?id=OHR.SummerDogs_ZH-CN1604998367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[赤狐 (© Yossi Eshbol/Minden Pictures)](https://www.bing.com/th?id=OHR.SummerDogs_ZH-CN1604998367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-02
 ![image](https://www.bing.com/th?id=OHR.HalfwayDay_ZH-CN1333459630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[分隔两个湖泊的公路，苏格兰高地 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayDay_ZH-CN1333459630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-01
