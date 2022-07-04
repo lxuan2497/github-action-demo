@@ -1,3 +1,5 @@
+## 2022-07-04
+![image](https://www.bing.com/th?id=OHR.SharavatiBridge_ZH-CN2011371774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一列火车穿过卡纳塔克邦的沙拉瓦蒂桥，印度 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.SharavatiBridge_ZH-CN2011371774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-03
 ![image](https://www.bing.com/th?id=OHR.SummerDogs_ZH-CN1604998367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[赤狐 (© Yossi Eshbol/Minden Pictures)](https://www.bing.com/th?id=OHR.SummerDogs_ZH-CN1604998367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-02
