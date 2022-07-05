@@ -1,3 +1,5 @@
+## 2022-07-05
+![image](https://www.bing.com/th?id=OHR.FannetteIsland_ZH-CN2395055456_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被翡翠湾环绕的芬尼特岛，太浩湖，加利福尼亚 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FannetteIsland_ZH-CN2395055456_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-04
 ![image](https://www.bing.com/th?id=OHR.SharavatiBridge_ZH-CN2011371774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一列火车穿过卡纳塔克邦的沙拉瓦蒂桥，印度 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.SharavatiBridge_ZH-CN2011371774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-03
