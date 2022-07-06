@@ -1,3 +1,5 @@
+## 2022-07-06
+![image](https://www.bing.com/th?id=OHR.KissingPuffins_ZH-CN2578608262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一对大西洋海雀在接吻，设得兰群岛，苏格兰 (© Vince Burton/Minden Pictures)](https://www.bing.com/th?id=OHR.KissingPuffins_ZH-CN2578608262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-05
 ![image](https://www.bing.com/th?id=OHR.FannetteIsland_ZH-CN2395055456_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被翡翠湾环绕的芬尼特岛，太浩湖，加利福尼亚 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FannetteIsland_ZH-CN2395055456_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-04
