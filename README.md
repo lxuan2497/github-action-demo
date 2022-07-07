@@ -1,3 +1,5 @@
+## 2022-07-07
+![image](https://www.bing.com/th?id=OHR.HecetaHead_ZH-CN2813876594_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈萨塔角灯塔，佛罗伦萨，俄勒冈州 (© Tom Schwabel/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HecetaHead_ZH-CN2813876594_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-06
 ![image](https://www.bing.com/th?id=OHR.KissingPuffins_ZH-CN2578608262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一对大西洋海雀在接吻，设得兰群岛，苏格兰 (© Vince Burton/Minden Pictures)](https://www.bing.com/th?id=OHR.KissingPuffins_ZH-CN2578608262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-05
