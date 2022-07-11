@@ -1,3 +1,5 @@
+## 2022-07-11
+![image](https://www.bing.com/th?id=OHR.BarcelonaPop_ZH-CN3687855585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴塞罗那城市上空，西班牙 (© SW Photography/Getty Images)](https://www.bing.com/th?id=OHR.BarcelonaPop_ZH-CN3687855585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-10
 ![image](https://www.bing.com/th?id=OHR.OludenizTurkey_ZH-CN3467496108_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[鸟瞰视角下的彩色船只，土耳其欧鲁旦尼斯 (© den-belitsky/Getty Images)](https://www.bing.com/th?id=OHR.OludenizTurkey_ZH-CN3467496108_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-09
