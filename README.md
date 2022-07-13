@@ -1,3 +1,5 @@
+## 2022-07-13
+![image](https://www.bing.com/th?id=OHR.BasaltGiants_ZH-CN4038085235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巨人堤道上的玄武岩柱，英国北爱尔兰 (© Olimpio Fantuz/eStock Photo)](https://www.bing.com/th?id=OHR.BasaltGiants_ZH-CN4038085235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-12
 ![image](https://www.bing.com/th?id=OHR.SpiralHill_ZH-CN3829252235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[悉尼奥林匹克公园里的湾标瞭望台，澳大利亚 (© ai_yoshi/Getty Images)](https://www.bing.com/th?id=OHR.SpiralHill_ZH-CN3829252235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-11
