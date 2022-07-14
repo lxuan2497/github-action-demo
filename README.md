@@ -1,3 +1,5 @@
+## 2022-07-14
+![image](https://www.bing.com/th?id=OHR.BabyLemons_ZH-CN4212701834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[爱丽丝镇附近水域中的柠檬鲨宝宝，巴哈马比米尼岛 (© Ken Kiefer 2/Getty Images)](https://www.bing.com/th?id=OHR.BabyLemons_ZH-CN4212701834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-13
 ![image](https://www.bing.com/th?id=OHR.BasaltGiants_ZH-CN4038085235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巨人堤道上的玄武岩柱，英国北爱尔兰 (© Olimpio Fantuz/eStock Photo)](https://www.bing.com/th?id=OHR.BasaltGiants_ZH-CN4038085235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-12
