@@ -1,3 +1,5 @@
+## 2022-07-18
+![image](https://www.bing.com/th?id=OHR.OmijimaIsland_ZH-CN3328515301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布满奇石的青海岛，日本北长门海岸国定公园 (© Sean Pavone Photo/Adobe Stock)](https://www.bing.com/th?id=OHR.OmijimaIsland_ZH-CN3328515301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-17
 ![image](https://www.bing.com/th?id=OHR.CoyoteButtes_ZH-CN3166159419_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北狼丘里的"波浪谷"，美国亚利桑那州 (© Dennis Frates/Alamy)](https://www.bing.com/th?id=OHR.CoyoteButtes_ZH-CN3166159419_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-16
