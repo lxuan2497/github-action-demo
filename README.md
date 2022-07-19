@@ -1,3 +1,5 @@
+## 2022-07-19
+![image](https://www.bing.com/th?id=OHR.FraueninselChiemsee_ZH-CN3541482552_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)](https://www.bing.com/th?id=OHR.FraueninselChiemsee_ZH-CN3541482552_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-18
 ![image](https://www.bing.com/th?id=OHR.OmijimaIsland_ZH-CN3328515301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布满奇石的青海岛，日本北长门海岸国定公园 (© Sean Pavone Photo/Adobe Stock)](https://www.bing.com/th?id=OHR.OmijimaIsland_ZH-CN3328515301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-17
