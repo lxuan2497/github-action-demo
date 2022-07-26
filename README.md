@@ -1,3 +1,5 @@
+## 2022-07-26
+![image](https://www.bing.com/th?id=OHR.MangroveDay_ZH-CN5590436101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨卢姆三角洲国家公园的红树林，塞内加尔共和国 (© mariusz_prusaczyk/Getty Images)](https://www.bing.com/th?id=OHR.MangroveDay_ZH-CN5590436101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-25
 ![image](https://www.bing.com/th?id=OHR.DolbadarnCastle_ZH-CN5397592090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[兰贝里斯山口脚下的多尔巴达恩城堡，威尔士 (© Viktoria Rodriguez/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnCastle_ZH-CN5397592090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-24
