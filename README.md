@@ -1,3 +1,5 @@
+## 2022-07-27
+![image](https://www.bing.com/th?id=OHR.NabateanTomb_ZH-CN5770360385_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[玛甸沙勒（也被称为黑格拉）的纳巴泰墓，沙特阿拉伯 (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.NabateanTomb_ZH-CN5770360385_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-26
 ![image](https://www.bing.com/th?id=OHR.MangroveDay_ZH-CN5590436101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨卢姆三角洲国家公园的红树林，塞内加尔共和国 (© mariusz_prusaczyk/Getty Images)](https://www.bing.com/th?id=OHR.MangroveDay_ZH-CN5590436101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-25
