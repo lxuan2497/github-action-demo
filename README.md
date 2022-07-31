@@ -1,3 +1,5 @@
+## 2022-07-31
+![image](https://www.bing.com/th?id=OHR.NoctilucentClouds_ZH-CN4816301354_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[立陶宛的夜光云 (© ljphoto7/Getty Images)](https://www.bing.com/th?id=OHR.NoctilucentClouds_ZH-CN4816301354_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-30
 ![image](https://www.bing.com/th?id=OHR.FiordlandRainforest_ZH-CN4528847139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[米尔福德峡湾附近的徒步雨林，新西兰 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FiordlandRainforest_ZH-CN4528847139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-29
