@@ -1,3 +1,5 @@
+## 2022-08-01
+![image](https://www.bing.com/th?id=OHR.LavaTube_ZH-CN5458469336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[漏出“天窗”的熔岩管，夏威夷火山国家公园 (© Tom Schwabel/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LavaTube_ZH-CN5458469336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-31
 ![image](https://www.bing.com/th?id=OHR.NoctilucentClouds_ZH-CN4816301354_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[立陶宛的夜光云 (© ljphoto7/Getty Images)](https://www.bing.com/th?id=OHR.NoctilucentClouds_ZH-CN4816301354_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-07-30
