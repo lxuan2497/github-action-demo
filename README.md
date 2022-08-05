@@ -1,3 +1,5 @@
+## 2022-08-05
+![image](https://www.bing.com/th?id=OHR.MilitaryTattoo_ZH-CN0302287210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夜晚的爱丁堡城市天际线，苏格兰 (© Suranga Weeratuna/Alamy)](https://www.bing.com/th?id=OHR.MilitaryTattoo_ZH-CN0302287210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-04
 ![image](https://www.bing.com/th?id=OHR.QiXiFestival2022_ZH-CN2628111266_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.QiXiFestival2022_ZH-CN2628111266_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-03
