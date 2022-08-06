@@ -1,3 +1,5 @@
+## 2022-08-06
+![image](https://www.bing.com/th?id=OHR.SFSaltFlats_ZH-CN7261637239_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SFSaltFlats_ZH-CN7261637239_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-05
 ![image](https://www.bing.com/th?id=OHR.MilitaryTattoo_ZH-CN0302287210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夜晚的爱丁堡城市天际线，苏格兰 (© Suranga Weeratuna/Alamy)](https://www.bing.com/th?id=OHR.MilitaryTattoo_ZH-CN0302287210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-04
