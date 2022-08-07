@@ -1,3 +1,5 @@
+## 2022-08-07
+![image](https://www.bing.com/th?id=OHR.theBeginningofAutumn2022_ZH-CN9413449297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杭州西湖的古典中国园林 (© DANNY HU/Getty Images)](https://www.bing.com/th?id=OHR.theBeginningofAutumn2022_ZH-CN9413449297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-06
 ![image](https://www.bing.com/th?id=OHR.SFSaltFlats_ZH-CN7261637239_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SFSaltFlats_ZH-CN7261637239_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-05
