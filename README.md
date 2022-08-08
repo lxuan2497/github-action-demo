@@ -1,3 +1,5 @@
+## 2022-08-08
+![image](https://www.bing.com/th?id=OHR.EsPantaleu_ZH-CN8612029580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣埃尔姆附近的潘塔留岛鸟瞰图，西班牙马略卡岛 (© Dimitri Weber/Azing航空公司)](https://www.bing.com/th?id=OHR.EsPantaleu_ZH-CN8612029580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-07
 ![image](https://www.bing.com/th?id=OHR.theBeginningofAutumn2022_ZH-CN9413449297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杭州西湖的古典中国园林 (© DANNY HU/Getty Images)](https://www.bing.com/th?id=OHR.theBeginningofAutumn2022_ZH-CN9413449297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-06
