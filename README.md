@@ -1,3 +1,5 @@
+## 2022-08-09
+![image](https://www.bing.com/th?id=OHR.CuevaManos_ZH-CN8900667928_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿根廷圣克鲁斯的洛斯马诺斯洞穴 (© Adwo/Alamy)](https://www.bing.com/th?id=OHR.CuevaManos_ZH-CN8900667928_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-08
 ![image](https://www.bing.com/th?id=OHR.EsPantaleu_ZH-CN8612029580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣埃尔姆附近的潘塔留岛鸟瞰图，西班牙马略卡岛 (© Dimitri Weber/Azing航空公司)](https://www.bing.com/th?id=OHR.EsPantaleu_ZH-CN8612029580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-07
