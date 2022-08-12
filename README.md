@@ -1,3 +1,5 @@
+## 2022-08-12
+![image](https://www.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安博塞利国家公园里的非洲象群，肯尼亚 (© Susan Portnoy/Shutterstock)](https://www.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-11
 ![image](https://www.bing.com/th?id=OHR.MtTsubakuro_ZH-CN0305525340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日本长野县安昙野附近的燕岳山 (© Joshua Hawley/Getty Images)](https://www.bing.com/th?id=OHR.MtTsubakuro_ZH-CN0305525340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-10
