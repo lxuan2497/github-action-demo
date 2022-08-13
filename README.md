@@ -1,3 +1,5 @@
+## 2022-08-13
+![image](https://www.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)](https://www.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-12
 ![image](https://www.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安博塞利国家公园里的非洲象群，肯尼亚 (© Susan Portnoy/Shutterstock)](https://www.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-11
