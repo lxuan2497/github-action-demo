@@ -1,3 +1,5 @@
+## 2022-08-14
+![image](https://www.bing.com/th?id=OHR.PantherChameleon_ZH-CN2554514270_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[琥珀山国家公园里的豹变色龙，马达加斯加 (© Christian Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.PantherChameleon_ZH-CN2554514270_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-13
 ![image](https://www.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)](https://www.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-12
