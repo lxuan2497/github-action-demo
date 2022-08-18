@@ -1,3 +1,5 @@
+## 2022-08-18
+![image](https://www.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哥德堡群岛的岸边，瑞典 (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-17
 ![image](https://www.bing.com/th?id=OHR.AquarioNatural_ZH-CN3886634374_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大自然的水族馆中的水下景观，巴西 (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.AquarioNatural_ZH-CN3886634374_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-16
