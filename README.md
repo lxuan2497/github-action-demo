@@ -1,3 +1,5 @@
+## 2022-08-19
+![image](https://www.bing.com/th?id=OHR.PenzancePool_ZH-CN4493022613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)](https://www.bing.com/th?id=OHR.PenzancePool_ZH-CN4493022613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-18
 ![image](https://www.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哥德堡群岛的岸边，瑞典 (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-17
