@@ -1,3 +1,5 @@
+## 2022-08-22
+![image](https://www.bing.com/th?id=OHR.TenderMoment_ZH-CN5447705408_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南佛罗里达的一只穴小鸮雏鸟和一只成年穴小鸮，美国 (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.TenderMoment_ZH-CN5447705408_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-21
 ![image](https://www.bing.com/th?id=OHR.CostadaMorte_ZH-CN5219249535_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加利西亚省科斯塔达莫尔特的灯塔，西班牙 (© Carlos Fernandez/Getty Images)](https://www.bing.com/th?id=OHR.CostadaMorte_ZH-CN5219249535_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-20
