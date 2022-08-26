@@ -1,3 +1,5 @@
+## 2022-08-26
+![image](https://www.bing.com/th?id=OHR.PeljesacWind_ZH-CN9299214248_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[克罗地亚佩列沙茨半岛附近的风筝冲浪者和风帆冲浪者 (© helivideo/Getty Images)](https://www.bing.com/th?id=OHR.PeljesacWind_ZH-CN9299214248_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-25
 ![image](https://www.bing.com/th?id=OHR.CascadesNP_ZH-CN1830542356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[华盛顿州北瀑布国家公园，美国 (© Ethan Welty/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CascadesNP_ZH-CN1830542356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-24
