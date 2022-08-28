@@ -1,3 +1,5 @@
+## 2022-08-28
+![image](https://www.bing.com/th?id=OHR.BeardedTit_ZH-CN0065279700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[荷兰弗莱福兰湿地的文须雀 (© Gert-Jan IJzerman/Minden Pictures)](https://www.bing.com/th?id=OHR.BeardedTit_ZH-CN0065279700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-27
 ![image](https://www.bing.com/th?id=OHR.MSHV_ZH-CN9630204701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣海伦斯山国家火山纪念区的边界小径，美国华盛顿州 (© Don Geyer/Alamy)](https://www.bing.com/th?id=OHR.MSHV_ZH-CN9630204701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-26
