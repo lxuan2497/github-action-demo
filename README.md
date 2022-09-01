@@ -1,3 +1,5 @@
+## 2022-09-01
+![image](https://www.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[维尔登的野生动物通道，荷兰 (© Frans Lemmens/Alamy)](https://www.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-31
 ![image](https://www.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)](https://www.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-30
