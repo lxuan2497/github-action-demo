@@ -1,3 +1,5 @@
+## 2022-09-02
+![image](https://www.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[克里特岛上的海滩，希腊 (© Georgios Tsichlis/Alamy)](https://www.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-01
 ![image](https://www.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[维尔登的野生动物通道，荷兰 (© Frans Lemmens/Alamy)](https://www.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-08-31
