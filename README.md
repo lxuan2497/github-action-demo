@@ -1,3 +1,5 @@
+## 2022-09-03
+![image](https://www.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[吉隆坡石油双塔，马来西亚 (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-02
 ![image](https://www.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[克里特岛上的海滩，希腊 (© Georgios Tsichlis/Alamy)](https://www.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-01
