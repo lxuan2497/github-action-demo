@@ -1,3 +1,5 @@
+## 2022-09-04
+![image](https://www.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)](https://www.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-03
 ![image](https://www.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[吉隆坡石油双塔，马来西亚 (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-02
