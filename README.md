@@ -1,3 +1,5 @@
+## 2022-09-05
+![image](https://www.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北魁北克的公路，加拿大 (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-04
 ![image](https://www.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)](https://www.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-03
