@@ -1,3 +1,5 @@
+## 2022-09-06
+![image](https://www.bing.com/th?id=OHR.SquirrelMushroom_ZH-CN2854383605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelMushroom_ZH-CN2854383605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-05
 ![image](https://www.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北魁北克的公路，加拿大 (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-04
