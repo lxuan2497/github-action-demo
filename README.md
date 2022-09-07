@@ -1,3 +1,5 @@
+## 2022-09-07
+![image](https://www.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-06
 ![image](https://www.bing.com/th?id=OHR.SquirrelMushroom_ZH-CN2854383605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelMushroom_ZH-CN2854383605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-05
