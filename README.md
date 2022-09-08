@@ -1,3 +1,5 @@
+## 2022-09-08
+![image](https://www.bing.com/th?id=OHR.CircumnavigationAnni_ZH-CN6835512993_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从塞维利亚的都市阳伞俯瞰城市，西班牙 (© LucVi/Shutterstock)](https://www.bing.com/th?id=OHR.CircumnavigationAnni_ZH-CN6835512993_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-07
 ![image](https://www.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-06
