@@ -1,3 +1,5 @@
+## 2022-09-14
+![image](https://www.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部  (© trekandshoot/Alamy)](https://www.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-13
 ![image](https://www.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)](https://www.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-12
