@@ -1,3 +1,5 @@
+## 2022-09-15
+![image](https://www.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)](https://www.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-14
 ![image](https://www.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部  (© trekandshoot/Alamy)](https://www.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-13
