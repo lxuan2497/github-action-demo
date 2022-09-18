@@ -1,3 +1,5 @@
+## 2022-09-18
+![image](https://www.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[幽鹤国家公园的翡翠湖, 加拿大不列颠哥伦比亚省 (© Cavan Images/Offset)](https://www.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-17
 ![image](https://www.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)](https://www.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-16
