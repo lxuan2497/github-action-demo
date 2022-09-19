@@ -1,3 +1,5 @@
+## 2022-09-19
+![image](https://www.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴斯利卡塔的卡斯泰尔梅扎诺村，意大利 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-18
 ![image](https://www.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[幽鹤国家公园的翡翠湖, 加拿大不列颠哥伦比亚省 (© Cavan Images/Offset)](https://www.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-17
