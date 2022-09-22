@@ -1,3 +1,5 @@
+## 2022-09-22
+![image](https://www.bing.com/th?id=OHR.SpringPoint_ZH-CN6445792697_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)](https://www.bing.com/th?id=OHR.SpringPoint_ZH-CN6445792697_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-21
 ![image](https://www.bing.com/th?id=OHR.SyltNordseeHoernum_ZH-CN6316415332_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)](https://www.bing.com/th?id=OHR.SyltNordseeHoernum_ZH-CN6316415332_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-20
