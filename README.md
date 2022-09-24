@@ -1,3 +1,5 @@
+## 2022-09-24
+![image](https://www.bing.com/th?id=OHR.DarkSkyAcadia_ZH-CN1827511700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.DarkSkyAcadia_ZH-CN1827511700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-23
 ![image](https://www.bing.com/th?id=OHR.LastDollarRoad_ZH-CN1462265798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[最后一美元公路旁的白杨树，科罗拉多州特鲁莱德市附近 (© Grant Ordelheide/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LastDollarRoad_ZH-CN1462265798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-22
