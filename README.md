@@ -1,3 +1,5 @@
+## 2022-09-25
+![image](https://www.bing.com/th?id=OHR.AmazonMangroves_ZH-CN2154443859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[亚马逊河鸟瞰图，巴西 (© Curioso.Photography/Shutterstock)](https://www.bing.com/th?id=OHR.AmazonMangroves_ZH-CN2154443859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-24
 ![image](https://www.bing.com/th?id=OHR.DarkSkyAcadia_ZH-CN1827511700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.DarkSkyAcadia_ZH-CN1827511700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-23
