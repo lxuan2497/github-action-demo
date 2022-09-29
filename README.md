@@ -1,3 +1,5 @@
+## 2022-09-29
+![image](https://www.bing.com/th?id=OHR.JohnstonWater_ZH-CN3121890365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.JohnstonWater_ZH-CN3121890365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-28
 ![image](https://www.bing.com/th?id=OHR.FosterCoveredBridge_ZH-CN2672988563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.FosterCoveredBridge_ZH-CN2672988563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-09-27
