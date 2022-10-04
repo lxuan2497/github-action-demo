@@ -1,3 +1,5 @@
+## 2022-10-04
+![image](https://www.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄山的日出，中国 (© zhouyousifang/Getty Images)](https://www.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-03
 ![image](https://www.bing.com/th?id=OHR.FairyGlen_ZH-CN4521633106_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)](https://www.bing.com/th?id=OHR.FairyGlen_ZH-CN4521633106_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-02
