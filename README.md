@@ -1,3 +1,5 @@
+## 2022-10-05
+![image](https://www.bing.com/th?id=OHR.FlamingoTeacher_ZH-CN5688509752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加勒比海红鹳，里奥拉加托斯自然保护区，墨西哥 (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.FlamingoTeacher_ZH-CN5688509752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-04
 ![image](https://www.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄山的日出，中国 (© zhouyousifang/Getty Images)](https://www.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-03
