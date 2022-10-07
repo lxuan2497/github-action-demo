@@ -1,3 +1,5 @@
+## 2022-10-07
+![image](https://www.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)](https://www.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-06
 ![image](https://www.bing.com/th?id=OHR.BayofBiscay_ZH-CN6002214693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴斯克海岸世界地质公园的比斯开湾，西班牙 (© Olimpio Fantuz/eStock Photo)](https://www.bing.com/th?id=OHR.BayofBiscay_ZH-CN6002214693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-05
