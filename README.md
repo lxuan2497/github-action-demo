@@ -1,3 +1,5 @@
+## 2022-10-08
+![image](https://www.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[佛得角附近大西洋中的玻璃章鱼 (© Solvin Zankl/Minden Pictures)](https://www.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-07
 ![image](https://www.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)](https://www.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-06
