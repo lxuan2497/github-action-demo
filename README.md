@@ -1,3 +1,5 @@
+## 2022-10-09
+![image](https://www.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[楚科奇海的浮游植物水华，美国阿拉斯加州海岸附近 (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)](https://www.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-08
 ![image](https://www.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[佛得角附近大西洋中的玻璃章鱼 (© Solvin Zankl/Minden Pictures)](https://www.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-07
