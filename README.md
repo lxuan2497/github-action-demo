@@ -1,3 +1,5 @@
+## 2022-10-10
+![image](https://www.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)](https://www.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-09
 ![image](https://www.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[楚科奇海的浮游植物水华，美国阿拉斯加州海岸附近 (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)](https://www.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-08
