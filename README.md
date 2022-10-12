@@ -1,3 +1,5 @@
+## 2022-10-12
+![image](https://www.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-11
 ![image](https://www.bing.com/th?id=OHR.TortulaMoss_ZH-CN8695265186_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[带着闪闪发光水滴的泛生墙藓, 荷兰 (© Arjan Troost/Minden Pictures)](https://www.bing.com/th?id=OHR.TortulaMoss_ZH-CN8695265186_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-10
