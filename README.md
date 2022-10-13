@@ -1,3 +1,5 @@
+## 2022-10-13
+![image](https://www.bing.com/th?id=OHR.AlaskaMoose_ZH-CN9148253690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.AlaskaMoose_ZH-CN9148253690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-12
 ![image](https://www.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-11
