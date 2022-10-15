@@ -1,3 +1,5 @@
+## 2022-10-15
+![image](https://www.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)](https://www.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-14
 ![image](https://www.bing.com/th?id=OHR.RioArazas_ZH-CN9451571402_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥尔德萨和佩尔迪多山国家公园里的瀑布，西班牙比利牛斯山脉 (© David Santiago Garcia/Cavan Images)](https://www.bing.com/th?id=OHR.RioArazas_ZH-CN9451571402_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-13
