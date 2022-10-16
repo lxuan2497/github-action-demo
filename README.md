@@ -1,3 +1,5 @@
+## 2022-10-16
+![image](https://www.bing.com/th?id=OHR.PrinceChristianSound_ZH-CN0274463143_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.PrinceChristianSound_ZH-CN0274463143_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-15
 ![image](https://www.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)](https://www.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-14
