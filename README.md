@@ -1,3 +1,5 @@
+## 2022-10-18
+![image](https://www.bing.com/th?id=OHR.BridalVeilFalls_ZH-CN3954641670_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.BridalVeilFalls_ZH-CN3954641670_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-17
 ![image](https://www.bing.com/th?id=OHR.SwedenOwl_ZH-CN6960032096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.SwedenOwl_ZH-CN6960032096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-16
