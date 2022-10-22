@@ -1,3 +1,5 @@
+## 2022-10-22
+![image](https://www.bing.com/th?id=OHR.KarstMountains_ZH-CN4719178982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[中国桂林漓江国家公园的喀斯特山脉 (© Sean Pavone/Alamy)](https://www.bing.com/th?id=OHR.KarstMountains_ZH-CN4719178982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-21
 ![image](https://www.bing.com/th?id=OHR.GeorgiaCypress_ZH-CN3705257154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GeorgiaCypress_ZH-CN3705257154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-20
