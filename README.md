@@ -1,3 +1,5 @@
+## 2022-10-26
+![image](https://www.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴尔干中央国家公园的布罗肯现象，保加利亚 (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-25
 ![image](https://www.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-24
