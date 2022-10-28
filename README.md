@@ -1,3 +1,5 @@
+## 2022-10-28
+![image](https://www.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)](https://www.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-27
 ![image](https://www.bing.com/th?id=OHR.BridgeofSighs_ZH-CN5414607871_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[意大利威尼斯的叹息桥 (© Doug Pearson/Alamy)](https://www.bing.com/th?id=OHR.BridgeofSighs_ZH-CN5414607871_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-26
