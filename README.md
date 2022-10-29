@@ -1,3 +1,5 @@
+## 2022-10-29
+![image](https://www.bing.com/th?id=OHR.SeaAngel_ZH-CN6176844066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海洋天使 (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.SeaAngel_ZH-CN6176844066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-28
 ![image](https://www.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)](https://www.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-27
