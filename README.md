@@ -1,3 +1,5 @@
+## 2022-11-02
+![image](https://www.bing.com/th?id=OHR.TeaPlantationsMunnar_ZH-CN7007323849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)](https://www.bing.com/th?id=OHR.TeaPlantationsMunnar_ZH-CN7007323849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-01
 ![image](https://www.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[神秘森林里木桌上的两个微笑的万圣节南瓜 (© sandsun/Getty Images)](https://www.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-10-31
