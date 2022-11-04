@@ -1,3 +1,5 @@
+## 2022-11-04
+![image](https://www.bing.com/th?id=OHR.PeytoIce_ZH-CN7517633327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)](https://www.bing.com/th?id=OHR.PeytoIce_ZH-CN7517633327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-03
 ![image](https://www.bing.com/th?id=OHR.AmboseliBioshere_ZH-CN7220940943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乞力马扎罗山和非洲水牛，肯尼亚 (© RealityImages/Shutterstock)](https://www.bing.com/th?id=OHR.AmboseliBioshere_ZH-CN7220940943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-02
