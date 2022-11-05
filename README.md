@@ -1,3 +1,5 @@
+## 2022-11-05
+![image](https://www.bing.com/th?id=OHR.Trossachs_ZH-CN9299955040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰 (© Fortunato Gatto/eStock Photo)](https://www.bing.com/th?id=OHR.Trossachs_ZH-CN9299955040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-04
 ![image](https://www.bing.com/th?id=OHR.PeytoIce_ZH-CN7517633327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)](https://www.bing.com/th?id=OHR.PeytoIce_ZH-CN7517633327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-03
