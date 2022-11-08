@@ -1,3 +1,5 @@
+## 2022-11-08
+![image](https://www.bing.com/th?id=OHR.YiPeng_ZH-CN0652265903_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[清迈易鹏节升起的天灯，泰国 (© Suttipong Sutiratanachai/Getty Images)](https://www.bing.com/th?id=OHR.YiPeng_ZH-CN0652265903_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-07
 ![image](https://www.bing.com/th?id=OHR.LiDong2022_ZH-CN9929478283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[庐山冬季美景，中国江西省 (© silkwayrain/Getty Images)](https://www.bing.com/th?id=OHR.LiDong2022_ZH-CN9929478283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-06
