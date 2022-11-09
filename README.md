@@ -1,3 +1,5 @@
+## 2022-11-09
+![image](https://www.bing.com/th?id=OHR.HedgehogNest_ZH-CN0781850458_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.HedgehogNest_ZH-CN0781850458_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-08
 ![image](https://www.bing.com/th?id=OHR.YiPeng_ZH-CN0652265903_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[清迈易鹏节升起的天灯，泰国 (© Suttipong Sutiratanachai/Getty Images)](https://www.bing.com/th?id=OHR.YiPeng_ZH-CN0652265903_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-07
