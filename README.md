@@ -1,3 +1,5 @@
+## 2022-11-10
+![image](https://www.bing.com/th?id=OHR.BadLightning_ZH-CN1049646409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雷暴中恶地国家公园的岩层，美国南达科他州 (© DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.BadLightning_ZH-CN1049646409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-09
 ![image](https://www.bing.com/th?id=OHR.HedgehogNest_ZH-CN0781850458_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.HedgehogNest_ZH-CN0781850458_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-08
