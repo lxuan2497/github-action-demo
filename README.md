@@ -1,3 +1,5 @@
+## 2022-11-15
+![image](https://www.bing.com/th?id=OHR.LontraCanadensis_ZH-CN3359002168_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北美水獭在阿卡迪亚国家公园游泳，美国 (© George Sanker/Minden Pictures)](https://www.bing.com/th?id=OHR.LontraCanadensis_ZH-CN3359002168_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-14
 ![image](https://www.bing.com/th?id=OHR.SanGiovanni_ZH-CN3184593519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈尔基岛的圣约翰骑士中世纪城堡遗址，希腊 (© Massimo Ripani/eStock Photo)](https://www.bing.com/th?id=OHR.SanGiovanni_ZH-CN3184593519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-13
