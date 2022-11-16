@@ -1,3 +1,5 @@
+## 2022-11-16
+![image](https://www.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[梅萨维德国家公园的悬崖宫，美国 (© Brad McGinley Photography/Getty Images)](https://www.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-15
 ![image](https://www.bing.com/th?id=OHR.LontraCanadensis_ZH-CN3359002168_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北美水獭在阿卡迪亚国家公园游泳，美国 (© George Sanker/Minden Pictures)](https://www.bing.com/th?id=OHR.LontraCanadensis_ZH-CN3359002168_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-14
