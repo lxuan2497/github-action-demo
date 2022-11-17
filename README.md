@@ -1,3 +1,5 @@
+## 2022-11-17
+![image](https://www.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[威拉米特国家森林麦肯齐河步道上的桥，美国 (© Don Paulson/Danita Delimont)](https://www.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-16
 ![image](https://www.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[梅萨维德国家公园的悬崖宫，美国 (© Brad McGinley Photography/Getty Images)](https://www.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-15
