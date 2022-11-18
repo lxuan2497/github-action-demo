@@ -1,3 +1,5 @@
+## 2022-11-18
+![image](https://www.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[菲斯皇宫的大门，摩洛哥 (© Adam Smigielski/Getty Images)](https://www.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-17
 ![image](https://www.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[威拉米特国家森林麦肯齐河步道上的桥，美国 (© Don Paulson/Danita Delimont)](https://www.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-16
