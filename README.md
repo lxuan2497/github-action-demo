@@ -1,3 +1,5 @@
+## 2022-11-19
+![image](https://www.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[犹他州锡安国家公园的维尔京河，美国 (© Jonathan Ross/Getty)](https://www.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-18
 ![image](https://www.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[菲斯皇宫的大门，摩洛哥 (© Adam Smigielski/Getty Images)](https://www.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-17
