@@ -1,3 +1,5 @@
+## 2022-11-20
+![image](https://www.bing.com/th?id=OHR.CosmicCliffs_ZH-CN9555199651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[船底星云中的宇宙悬崖 (© NASA, ESA, CSA, and STScI)](https://www.bing.com/th?id=OHR.CosmicCliffs_ZH-CN9555199651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-19
 ![image](https://www.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[犹他州锡安国家公园的维尔京河，美国 (© Jonathan Ross/Getty)](https://www.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-18
