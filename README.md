@@ -1,3 +1,5 @@
+## 2022-11-25
+![image](https://www.bing.com/th?id=OHR.TurenneSunrise_ZH-CN2357226217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)](https://www.bing.com/th?id=OHR.TurenneSunrise_ZH-CN2357226217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-24
 ![image](https://www.bing.com/th?id=OHR.AschauChiemgau_ZH-CN1929016406_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)](https://www.bing.com/th?id=OHR.AschauChiemgau_ZH-CN1929016406_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-23
