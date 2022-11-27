@@ -1,3 +1,5 @@
+## 2022-11-27
+![image](https://www.bing.com/th?id=OHR.Cecropia_ZH-CN4236630074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一片飘落在龙虾爪瓣上的号角树树叶，墨西哥 (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.Cecropia_ZH-CN4236630074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-26
 ![image](https://www.bing.com/th?id=OHR.OliveTreeDay_ZH-CN3960861965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[意大利西西里岛康科迪亚神庙前的一棵橄榄树 (© Alfio Finocchiaro/Shutterstock)](https://www.bing.com/th?id=OHR.OliveTreeDay_ZH-CN3960861965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-25
