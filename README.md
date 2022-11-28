@@ -1,3 +1,5 @@
+## 2022-11-28
+![image](https://www.bing.com/th?id=OHR.RedPlanetDay_ZH-CN4913018041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[火星（© NASA/Alamy）](https://www.bing.com/th?id=OHR.RedPlanetDay_ZH-CN4913018041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-27
 ![image](https://www.bing.com/th?id=OHR.Cecropia_ZH-CN4236630074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一片飘落在龙虾爪瓣上的号角树树叶，墨西哥 (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.Cecropia_ZH-CN4236630074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-26
