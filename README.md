@@ -1,3 +1,5 @@
+## 2022-12-01
+![image](https://www.bing.com/th?id=OHR.QingmingCandle2020_ZH-CN6775701680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[江泽民逝世 (© Luca Flor/Shutterstock)](https://www.bing.com/th?id=OHR.QingmingCandle2020_ZH-CN6775701680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-30
 ![image](https://www.bing.com/th?id=OHR.RovinjCroatia_ZH-CN5459110500_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[罗维尼老城，克罗地亚 (© trabantos/Shutterstock)](https://www.bing.com/th?id=OHR.RovinjCroatia_ZH-CN5459110500_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-29
