@@ -1,3 +1,5 @@
+## 2022-12-02
+![image](https://www.bing.com/th?id=OHR.BraidedRiverDelta_ZH-CN3352462511_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[特里卡基拉河三角洲，阿拉斯加州克拉克湖国家公园，美国 (© Dawn Wilson Photography/Getty Images)](https://www.bing.com/th?id=OHR.BraidedRiverDelta_ZH-CN3352462511_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-01
 ![image](https://www.bing.com/th?id=OHR.QingmingCandle2020_ZH-CN6775701680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[江泽民逝世 (© Luca Flor/Shutterstock)](https://www.bing.com/th?id=OHR.QingmingCandle2020_ZH-CN6775701680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-11-30
