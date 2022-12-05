@@ -1,3 +1,5 @@
+## 2022-12-05
+![image](https://www.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[古瓦哈提的竹子，印度阿萨姆邦 (© Page Bazar/500px/Getty Images)](https://www.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-04
 ![image](https://www.bing.com/th?id=OHR.KilimanjaroElephants_ZH-CN3779609103_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乞力马扎罗山附近的大象，安波塞利国家公园，肯尼亚 (© Diana Robinson Photography/Getty Images)](https://www.bing.com/th?id=OHR.KilimanjaroElephants_ZH-CN3779609103_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-03
