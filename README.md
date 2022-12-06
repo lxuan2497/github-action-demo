@@ -1,3 +1,5 @@
+## 2022-12-06
+![image](https://www.bing.com/th?id=OHR.GreatEgret_ZH-CN4088261519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大沼泽国家公园里的一只大白鹭，美国佛罗里达州 (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.GreatEgret_ZH-CN4088261519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-05
 ![image](https://www.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[古瓦哈提的竹子，印度阿萨姆邦 (© Page Bazar/500px/Getty Images)](https://www.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-04
