@@ -1,3 +1,5 @@
+## 2022-12-08
+![image](https://www.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)](https://www.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-07
 ![image](https://www.bing.com/th?id=OHR.TangleCreekFalls_ZH-CN4281148652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[贾斯珀国家公园纠结溪瀑布，阿尔伯塔省，加拿大 (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.TangleCreekFalls_ZH-CN4281148652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-06
