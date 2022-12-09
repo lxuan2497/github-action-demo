@@ -1,3 +1,5 @@
+## 2022-12-09
+![image](https://www.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)](https://www.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-08
 ![image](https://www.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)](https://www.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-07
