@@ -1,3 +1,5 @@
+## 2022-12-11
+![image](https://www.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[泰根塞山脉Roßstein山顶的景色，德国巴伐利亚州 (© Christian Bäck/eStock Photo)](https://www.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-10
 ![image](https://www.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)](https://www.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-09
