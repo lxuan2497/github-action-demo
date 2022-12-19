@@ -1,3 +1,5 @@
+## 2022-12-19
+![image](https://www.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[栖息在北美冬青上的北美红雀，美国伊利诺伊州 (© Richard and Susan Day/Danita Delimont)](https://www.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-18
 ![image](https://www.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[迈阿密南海滩，美国佛罗里达州 (© Claudia Uripos/eStock Photo)](https://www.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-17
