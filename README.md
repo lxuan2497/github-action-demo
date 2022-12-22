@@ -1,3 +1,5 @@
+## 2022-12-22
+![image](https://www.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安纳西，法国上瓦萨省 (© Sabine Klein/Alamy)](https://www.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-21
 ![image](https://www.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多洛米蒂山脉安特莫亚湖上的日晕，意大利 (© Walter Donega/Getty Images)](https://www.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-20
