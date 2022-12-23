@@ -1,3 +1,5 @@
+## 2022-12-23
+![image](https://www.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南极洲的巴布亚企鹅 (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-22
 ![image](https://www.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安纳西，法国上瓦萨省 (© Sabine Klein/Alamy)](https://www.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-21
