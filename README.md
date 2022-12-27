@@ -1,3 +1,5 @@
+## 2022-12-27
+![image](https://www.bing.com/th?id=OHR.BlueLagoon_ZH-CN3874240119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格林达维克的蓝湖，冰岛 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.BlueLagoon_ZH-CN3874240119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-26
 ![image](https://www.bing.com/th?id=OHR.BeverleyWestwood_ZH-CN3729041588_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[贝弗利·韦斯特伍德，东约克郡，英格兰 (© Les Gibbon/Alamy)](https://www.bing.com/th?id=OHR.BeverleyWestwood_ZH-CN3729041588_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-25
