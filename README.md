@@ -1,3 +1,5 @@
+## 2022-12-28
+![image](https://www.bing.com/th?id=OHR.ChiesaBianca_ZH-CN4208333975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马洛亚，瑞士 (© Roberto Moiola/Getty)](https://www.bing.com/th?id=OHR.ChiesaBianca_ZH-CN4208333975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-27
 ![image](https://www.bing.com/th?id=OHR.BlueLagoon_ZH-CN3874240119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格林达维克的蓝湖，冰岛 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.BlueLagoon_ZH-CN3874240119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-26
