@@ -1,3 +1,5 @@
+## 2022-12-29
+![image](https://www.bing.com/th?id=OHR.StorrRocks_ZH-CN4956679462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯托尔石山，天空之岛，苏格兰 (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StorrRocks_ZH-CN4956679462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-28
 ![image](https://www.bing.com/th?id=OHR.ChiesaBianca_ZH-CN4208333975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马洛亚，瑞士 (© Roberto Moiola/Getty)](https://www.bing.com/th?id=OHR.ChiesaBianca_ZH-CN4208333975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-27
