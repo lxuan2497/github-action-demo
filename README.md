@@ -1,3 +1,5 @@
+## 2023-01-02
+![image](https://www.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[霍亨索伦城堡，德国 (© Sahara Prince/Shutterstock)](https://www.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-01
 ![image](https://www.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北极熊斯瓦尔巴群岛，挪威 (© Dennis Stogsdill/Getty Images)](https://www.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2022-12-31
