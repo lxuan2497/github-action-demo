@@ -1,3 +1,5 @@
+## 2023-01-07
+![image](https://www.bing.com/th?id=OHR.Mohair_ZH-CN9435762268_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[羊毛和马海毛纱线 (© Jurate Buiviene/Alamy)](https://www.bing.com/th?id=OHR.Mohair_ZH-CN9435762268_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-06
 ![image](https://www.bing.com/th?id=OHR.BlackFell_ZH-CN9224189688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[英格兰湖区的Black Fell (© Daniel Kay/Shutterstock)](https://www.bing.com/th?id=OHR.BlackFell_ZH-CN9224189688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-05
