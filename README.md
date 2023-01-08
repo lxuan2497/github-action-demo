@@ -1,3 +1,5 @@
+## 2023-01-08
+![image](https://www.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科罗拉多州布雷肯里奇 (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-07
 ![image](https://www.bing.com/th?id=OHR.Mohair_ZH-CN9435762268_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[羊毛和马海毛纱线 (© Jurate Buiviene/Alamy)](https://www.bing.com/th?id=OHR.Mohair_ZH-CN9435762268_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-06
