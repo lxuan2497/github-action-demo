@@ -1,3 +1,5 @@
+## 2023-01-09
+![image](https://www.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南达科他州风洞国家公园的水牛 (© Charlie Summers/Minden Pictures)](https://www.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-08
 ![image](https://www.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科罗拉多州布雷肯里奇 (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-07
