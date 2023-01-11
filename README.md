@@ -1,3 +1,5 @@
+## 2023-01-11
+![image](https://www.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[戈德雷维灯塔，英国康沃尔郡 (© Paul Nash/Shutterstock)](https://www.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-10
 ![image](https://www.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[爱沙尼亚佩普斯湖上的小冰丘 (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-09
