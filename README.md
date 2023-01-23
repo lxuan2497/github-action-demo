@@ -1,3 +1,5 @@
+## 2023-01-23
+![image](https://www.bing.com/th?id=OHR.SunriseMoai_ZH-CN7413178404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[复活节岛上的摩艾石像，智利 (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunriseMoai_ZH-CN7413178404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-22
 ![image](https://www.bing.com/th?id=OHR.ChineseSpringFestival2023_ZH-CN7281854882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[春节的桃花和红灯笼 (© David Ng+EyeEm/Getty Images)](https://www.bing.com/th?id=OHR.ChineseSpringFestival2023_ZH-CN7281854882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-21
