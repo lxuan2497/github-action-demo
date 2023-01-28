@@ -1,3 +1,5 @@
+## 2023-01-28
+![image](https://www.bing.com/th?id=OHR.BlueBahamas_ZH-CN2083290847_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从国际空间站看到的巴哈马周围的蓝绿色水域 (© NASA)](https://www.bing.com/th?id=OHR.BlueBahamas_ZH-CN2083290847_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-27
 ![image](https://www.bing.com/th?id=OHR.RedMangrove_ZH-CN4083989028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓜纳阿卡维韦斯半岛国家公园的红树林，古巴 (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.RedMangrove_ZH-CN4083989028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-01-26
