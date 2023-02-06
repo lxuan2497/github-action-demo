@@ -1,3 +1,5 @@
+## 2023-02-06
+![image](https://www.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)](https://www.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-02-05
 ![image](https://www.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)](https://www.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-02-04
