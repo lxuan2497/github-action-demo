@@ -1,3 +1,5 @@
+## 2023-02-08
+![image](https://www.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)](https://www.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-02-07
 ![image](https://www.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock)](https://www.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-02-06
