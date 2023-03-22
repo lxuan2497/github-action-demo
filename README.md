@@ -1,3 +1,5 @@
+## 2023-03-22
+![image](https://www.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[鲍威尔湖，美国 (© Peter Schaefer/Alamy)](https://www.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-03-21
 ![image](https://www.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[彩色粉笔 (© Stephen Shepherd/Plainpicture)](https://www.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-03-20
