@@ -1,3 +1,5 @@
+## 2023-04-02
+![image](https://www.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[爪哇岛东部的婆罗摩火山，印度尼西亚 (© Bento Fotography/Getty Images)](https://www.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-04-01
 ![image](https://www.bing.com/th?id=OHR.FrogMonth_ZH-CN3874143397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[爪哇树蛙 (© kuritafsheen/Getty Images)](https://www.bing.com/th?id=OHR.FrogMonth_ZH-CN3874143397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-03-31
