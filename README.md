@@ -1,3 +1,5 @@
+## 2023-04-03
+![image](https://www.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大岛上的霍瑙瑙国家历史公园，夏威夷 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-04-02
 ![image](https://www.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[爪哇岛东部的婆罗摩火山，印度尼西亚 (© Bento Fotography/Getty Images)](https://www.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-04-01
