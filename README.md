@@ -1,3 +1,5 @@
+## 2023-04-06
+![image](https://www.bing.com/th?id=OHR.ArizonaPinkMoon_ZH-CN5545607389_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[月亮升起，图森，亚利桑那州，美国 (© Tim Murphy/Shutterstock)](https://www.bing.com/th?id=OHR.ArizonaPinkMoon_ZH-CN5545607389_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-04-05
 ![image](https://www.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杭州西湖水墨意境般的风景，浙江省，中国 (© zhangshuang/Getty Images)](https://www.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-04-04
