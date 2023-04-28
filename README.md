@@ -1,3 +1,5 @@
+## 2023-04-28
+![image](https://www.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州 (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-04-27
 ![image](https://www.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-04-26
