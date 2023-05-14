@@ -1,3 +1,5 @@
+## 2023-05-14
+![image](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-05-13
 ![image](https://www.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[曼海姆水塔，德国 (© tichr/Getty Images)](https://www.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-05-12
