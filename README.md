@@ -1,3 +1,5 @@
+## 2023-05-25
+![image](https://www.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[法罗群岛，丹麦 (© miroslav_1/Getty Images)](https://www.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-05-24
 ![image](https://www.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科孚岛旧城堡 (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-05-23
