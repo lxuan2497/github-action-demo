@@ -1,3 +1,5 @@
+## 2023-06-02
+![image](https://www.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[沙丘中的南非剑羚，纳米比亚 (© Sergey Gorshkov/Alamy)](https://www.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-01
 ![image](https://www.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大堡礁的航拍图，澳大利亚 (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-05-31
