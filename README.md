@@ -1,3 +1,5 @@
+## 2023-06-04
+![image](https://www.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国 (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-03
 ![image](https://www.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大峡谷国家公园的南凯巴布步道，亚利桑那州，美国 (© Roman Khomlyak/Getty Images)](https://www.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-02
