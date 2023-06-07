@@ -1,3 +1,5 @@
+## 2023-06-07
+![image](https://www.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-06
 ![image](https://www.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)](https://www.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-05
