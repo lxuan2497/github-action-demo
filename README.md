@@ -1,3 +1,5 @@
+## 2023-06-14
+![image](https://www.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-13
 ![image](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-12
