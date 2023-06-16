@@ -1,3 +1,5 @@
+## 2023-06-16
+![image](https://www.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[游泳的鹰嘴海龟， 冲绳，日本 (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-15
 ![image](https://www.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[同步萤火虫，大烟山国家公园，田纳西州，美国 (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-14
