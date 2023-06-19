@@ -1,3 +1,5 @@
+## 2023-06-19
+![image](https://www.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奔跑在诺曼底草地上的小狍，法国 (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-18
 ![image](https://www.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-17
