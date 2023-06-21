@@ -1,3 +1,5 @@
+## 2023-06-21
+![image](https://www.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夏日盛开的荷花 (© pandemin/Getty Images)](https://www.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-20
 ![image](https://www.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-19
