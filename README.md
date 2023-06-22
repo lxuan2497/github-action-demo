@@ -1,3 +1,5 @@
+## 2023-06-22
+![image](https://www.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[中国传统节日端午节 (© timekeep/Shutterstock)](https://www.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-21
 ![image](https://www.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夏日盛开的荷花 (© pandemin/Getty Images)](https://www.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-20
