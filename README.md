@@ -1,3 +1,5 @@
+## 2023-06-26
+![image](https://www.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-25
 ![image](https://www.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-24
