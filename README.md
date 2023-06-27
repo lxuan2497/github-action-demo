@@ -1,3 +1,5 @@
+## 2023-06-27
+![image](https://www.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-26
 ![image](https://www.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-25
