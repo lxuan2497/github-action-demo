@@ -1,3 +1,5 @@
+## 2023-06-28
+![image](https://www.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)](https://www.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-27
 ![image](https://www.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-06-26
