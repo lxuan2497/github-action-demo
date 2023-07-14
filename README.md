@@ -1,3 +1,5 @@
+## 2023-07-14
+![image](https://www.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)](https://www.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-13
 ![image](https://www.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-12
