@@ -1,3 +1,5 @@
+## 2023-07-21
+![image](https://www.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-20
 ![image](https://www.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从美国宇航局猎户座飞船上看到的月球 (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-19
