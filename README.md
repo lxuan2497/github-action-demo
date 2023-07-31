@@ -1,3 +1,5 @@
+## 2023-07-31
+![image](https://www.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-30
 ![image](https://www.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-29
