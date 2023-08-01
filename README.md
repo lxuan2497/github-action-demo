@@ -1,3 +1,5 @@
+## 2023-08-01
+![image](https://www.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-31
 ![image](https://www.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-07-30
