@@ -1,3 +1,5 @@
+## 2023-08-04
+![image](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[廷特恩修道院，威尔士 (© matthibcn/Getty Images)](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-03
 ![image](https://www.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images)](https://www.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-02
