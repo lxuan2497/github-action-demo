@@ -1,3 +1,5 @@
+## 2023-08-05
+![image](https://www.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures)](https://www.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-04
 ![image](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[廷特恩修道院，威尔士 (© matthibcn/Getty Images)](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-03
