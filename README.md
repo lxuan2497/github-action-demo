@@ -1,3 +1,5 @@
+## 2023-08-07
+![image](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-06
 ![image](https://www.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[镜池，长野，日本 (© Shoji Fujita/Getty Images)](https://www.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-05
