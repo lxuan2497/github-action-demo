@@ -1,3 +1,5 @@
+## 2023-08-08
+![image](https://www.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-07
 ![image](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-06
