@@ -1,3 +1,5 @@
+## 2023-08-14
+![image](https://www.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[叶片上的小壁虎 (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-13
 ![image](https://www.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国 (© Joshua Meador/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-12
