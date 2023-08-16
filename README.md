@@ -1,3 +1,5 @@
+## 2023-08-16
+![image](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-15
 ![image](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-14
