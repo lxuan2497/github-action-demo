@@ -1,3 +1,5 @@
+## 2023-08-18
+![image](https://www.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-17
 ![image](https://www.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)](https://www.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-16
