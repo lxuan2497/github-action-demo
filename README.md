@@ -1,3 +1,5 @@
+## 2023-08-20
+![image](https://www.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-19
 ![image](https://www.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-18
