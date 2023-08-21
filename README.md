@@ -1,3 +1,5 @@
+## 2023-08-21
+![image](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[翡翠湖，加拿大育空地区 (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-20
 ![image](https://www.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-19
