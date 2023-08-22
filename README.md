@@ -1,3 +1,5 @@
+## 2023-08-22
+![image](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-21
 ![image](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[翡翠湖，加拿大育空地区 (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-20
