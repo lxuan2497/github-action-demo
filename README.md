@@ -1,3 +1,5 @@
+## 2023-08-24
+![image](https://www.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-23
 ![image](https://www.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯科加瀑布，冰岛 (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-22
