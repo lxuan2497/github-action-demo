@@ -1,3 +1,5 @@
+## 2023-08-27
+![image](https://www.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-26
 ![image](https://www.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-25
