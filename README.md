@@ -1,3 +1,5 @@
+## 2023-08-28
+![image](https://www.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚 (© Benny Marty/Shutterstock)](https://www.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-27
 ![image](https://www.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-08-26
