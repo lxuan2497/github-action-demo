@@ -1,3 +1,5 @@
+## 2023-09-05
+![image](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-04
 ![image](https://www.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-03
