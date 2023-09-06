@@ -1,3 +1,5 @@
+## 2023-09-06
+![image](https://www.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)](https://www.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-05
 ![image](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-04
