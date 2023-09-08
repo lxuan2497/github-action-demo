@@ -1,3 +1,5 @@
+## 2023-09-08
+![image](https://www.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-07
 ![image](https://www.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[沙漠中的骆驼，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-06
