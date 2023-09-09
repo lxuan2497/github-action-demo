@@ -1,3 +1,5 @@
+## 2023-09-09
+![image](https://www.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)](https://www.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-08
 ![image](https://www.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-07
