@@ -1,3 +1,5 @@
+## 2023-09-10
+![image](https://www.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)](https://www.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-09
 ![image](https://www.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)](https://www.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-08
