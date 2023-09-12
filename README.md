@@ -1,3 +1,5 @@
+## 2023-09-12
+![image](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-11
 ![image](https://www.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)](https://www.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-10
