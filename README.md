@@ -1,3 +1,5 @@
+## 2023-09-14
+![image](https://www.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-13
 ![image](https://www.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-12
