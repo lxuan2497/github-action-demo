@@ -1,3 +1,5 @@
+## 2023-09-19
+![image](https://www.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images)](https://www.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-18
 ![image](https://www.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-17
