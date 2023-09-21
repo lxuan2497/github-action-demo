@@ -1,3 +1,5 @@
+## 2023-09-21
+![image](https://www.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-20
 ![image](https://www.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images)](https://www.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-19
