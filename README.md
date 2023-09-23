@@ -1,3 +1,5 @@
+## 2023-09-23
+![image](https://www.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-22
 ![image](https://www.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马尔萨拉盐田，意大利 (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-21
