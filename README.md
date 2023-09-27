@@ -1,3 +1,5 @@
+## 2023-09-27
+![image](https://www.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)](https://www.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-26
 ![image](https://www.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-09-25
