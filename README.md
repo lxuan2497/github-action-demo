@@ -1,3 +1,5 @@
+## 2023-10-06
+![image](https://www.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国 (© Paul Massie Photography/Getty Images)](https://www.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-05
 ![image](https://www.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴布亚企鹅，南极洲 (© Art Wolfe/Getty Images)](https://www.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-04
