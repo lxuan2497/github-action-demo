@@ -1,3 +1,5 @@
+## 2023-10-08
+![image](https://www.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)](https://www.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-07
 ![image](https://www.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-06
