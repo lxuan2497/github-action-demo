@@ -1,3 +1,5 @@
+## 2023-10-10
+![image](https://www.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-09
 ![image](https://www.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)](https://www.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-08
