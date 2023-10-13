@@ -1,3 +1,5 @@
+## 2023-10-13
+![image](https://www.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-12
 ![image](https://www.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)](https://www.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-11
