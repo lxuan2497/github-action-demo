@@ -1,3 +1,5 @@
+## 2023-10-14
+![image](https://www.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)["火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-13
 ![image](https://www.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-12
