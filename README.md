@@ -1,3 +1,5 @@
+## 2023-10-15
+![image](https://www.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[躲在树皮中欧洲刺猬，苏塞克斯，英国 (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-14
 ![image](https://www.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)["火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-13
