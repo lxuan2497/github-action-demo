@@ -1,3 +1,5 @@
+## 2023-10-16
+![image](https://www.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-15
 ![image](https://www.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[躲在树皮中欧洲刺猬，苏塞克斯，英国 (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-14
