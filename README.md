@@ -1,3 +1,5 @@
+## 2023-10-17
+![image](https://www.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕拉塔塔,阿雅克肖,科西嘉岛,法国 (© Jon Ingall/Alamy)](https://www.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-16
 ![image](https://www.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-15
