@@ -1,3 +1,5 @@
+## 2023-10-19
+![image](https://www.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-18
 ![image](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-17
