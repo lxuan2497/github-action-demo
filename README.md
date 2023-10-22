@@ -1,3 +1,5 @@
+## 2023-10-22
+![image](https://www.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-21
 ![image](https://www.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-20
