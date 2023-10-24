@@ -1,3 +1,5 @@
+## 2023-10-24
+![image](https://www.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-23
 ![image](https://www.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)](https://www.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-22
