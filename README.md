@@ -1,3 +1,5 @@
+## 2023-10-27
+![image](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-26
 ![image](https://www.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-25
