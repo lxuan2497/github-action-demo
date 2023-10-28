@@ -1,3 +1,5 @@
+## 2023-10-28
+![image](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-27
 ![image](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-26
