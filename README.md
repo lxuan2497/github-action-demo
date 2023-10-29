@@ -1,3 +1,5 @@
+## 2023-10-29
+![image](https://www.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)](https://www.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-28
 ![image](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-27
