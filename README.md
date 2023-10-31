@@ -1,3 +1,5 @@
+## 2023-10-31
+![image](https://www.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[万圣节南瓜灯 (© Bing Image Creator)](https://www.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-30
 ![image](https://www.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普通乌鸦坐在树枝上 (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-29
