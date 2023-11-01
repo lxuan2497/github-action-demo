@@ -1,3 +1,5 @@
+## 2023-11-01
+![image](https://www.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images)](https://www.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-31
 ![image](https://www.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[万圣节南瓜灯 (© Bing Image Creator)](https://www.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-30
