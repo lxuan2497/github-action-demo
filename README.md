@@ -1,3 +1,5 @@
+## 2023-11-02
+![image](https://www.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-01
 ![image](https://www.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images)](https://www.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-10-31
