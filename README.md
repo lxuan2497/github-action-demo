@@ -1,3 +1,5 @@
+## 2023-11-05
+![image](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-04
 ![image](https://www.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-03
