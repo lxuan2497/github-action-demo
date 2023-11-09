@@ -1,3 +1,5 @@
+## 2023-11-09
+![image](https://www.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-08
 ![image](https://www.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)](https://www.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-07
