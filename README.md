@@ -1,3 +1,5 @@
+## 2023-11-10
+![image](https://www.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-09
 ![image](https://www.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-08
