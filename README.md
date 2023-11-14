@@ -1,3 +1,5 @@
+## 2023-11-14
+![image](https://www.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[特卡波湖沿岸的鲁冰花，南岛，新西兰 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-13
 ![image](https://www.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-12
