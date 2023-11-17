@@ -1,3 +1,5 @@
+## 2023-11-17
+![image](https://www.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-16
 ![image](https://www.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雅典和卫城，希腊 (© Mlenny/Getty Images)](https://www.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-15
