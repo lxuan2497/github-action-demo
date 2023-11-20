@@ -1,3 +1,5 @@
+## 2023-11-20
+![image](https://www.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲 (© Billy Stock/robertharding/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-19
 ![image](https://www.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-18
