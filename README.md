@@ -1,3 +1,5 @@
+## 2023-11-22
+![image](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-21
 ![image](https://www.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)](https://www.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-20
