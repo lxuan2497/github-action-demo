@@ -1,3 +1,5 @@
+## 2023-11-27
+![image](https://www.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[内格罗河，亚马逊河流域，巴西 (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-26
 ![image](https://www.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy)](https://www.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-11-25
