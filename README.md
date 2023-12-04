@@ -1,3 +1,5 @@
+## 2023-12-04
+![image](https://www.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-03
 ![image](https://www.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[砂岩岩层，红悬崖国家保护区，亚利桑那州，美国 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-02
