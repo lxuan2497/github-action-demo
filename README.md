@@ -1,3 +1,5 @@
+## 2023-12-09
+![image](https://www.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-08
 ![image](https://www.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-07
