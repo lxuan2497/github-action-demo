@@ -1,3 +1,5 @@
+## 2023-12-11
+![image](https://www.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-10
 ![image](https://www.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)](https://www.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-09
