@@ -1,3 +1,5 @@
+## 2023-12-14
+![image](https://www.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北方猫头鹰，萨斯喀彻温省，加拿大 (© Nick Saunders/Minden Pictures)](https://www.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-13
 ![image](https://www.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-12
