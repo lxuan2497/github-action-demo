@@ -1,3 +1,5 @@
+## 2023-12-16
+![image](https://www.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-15
 ![image](https://www.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[罗瓦涅米的圣诞老人公园，拉普兰德，芬兰 (© lukutin77/Getty Images)](https://www.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-14
