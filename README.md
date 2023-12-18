@@ -1,3 +1,5 @@
+## 2023-12-18
+![image](https://www.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-17
 ![image](https://www.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-16
