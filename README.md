@@ -1,3 +1,5 @@
+## 2023-12-21
+![image](https://www.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-20
 ![image](https://www.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)](https://www.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-19
