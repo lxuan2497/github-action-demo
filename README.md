@@ -1,3 +1,5 @@
+## 2023-12-22
+![image](https://www.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)](https://www.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-21
 ![image](https://www.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-20
