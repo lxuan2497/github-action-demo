@@ -1,3 +1,5 @@
+## 2023-12-30
+![image](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-29
 ![image](https://www.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[旧西街区，阿姆斯特丹 ，荷兰 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-28
