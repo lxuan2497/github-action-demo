@@ -1,3 +1,5 @@
+## 2023-12-31
+![image](https://www.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock)](https://www.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-30
 ![image](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-29
