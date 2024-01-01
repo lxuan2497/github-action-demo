@@ -1,3 +1,5 @@
+## 2024-01-01
+![image](https://www.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[睡在雪地里的赤狐，阿布鲁佐，意大利 (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-31
 ![image](https://www.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock)](https://www.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2023-12-30
