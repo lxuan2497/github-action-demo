@@ -1,3 +1,5 @@
+## 2024-01-04
+![image](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-03
 ![image](https://www.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images)](https://www.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-02
