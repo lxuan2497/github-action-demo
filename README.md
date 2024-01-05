@@ -1,3 +1,5 @@
+## 2024-01-05
+![image](https://www.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴伐利亚阿尔卑斯山脉，德国 (© JFL Photography/Adobe Stock)](https://www.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-04
 ![image](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-03
