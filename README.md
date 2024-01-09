@@ -1,3 +1,5 @@
+## 2024-01-09
+![image](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-08
 ![image](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-07
