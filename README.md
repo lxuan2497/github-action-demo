@@ -1,3 +1,5 @@
+## 2024-01-10
+![image](https://www.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-09
 ![image](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-08
