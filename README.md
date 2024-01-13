@@ -1,3 +1,5 @@
+## 2024-01-13
+![image](https://www.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-12
 ![image](https://www.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北汉山国立公园，韩国 (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-11
