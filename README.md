@@ -1,3 +1,5 @@
+## 2024-01-14
+![image](https://www.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-13
 ![image](https://www.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-12
