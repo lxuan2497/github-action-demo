@@ -1,3 +1,5 @@
+## 2024-01-15
+![image](https://www.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)](https://www.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-14
 ![image](https://www.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-13
