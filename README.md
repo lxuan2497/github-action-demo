@@ -1,3 +1,5 @@
+## 2024-01-22
+![image](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-21
 ![image](https://www.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-20
