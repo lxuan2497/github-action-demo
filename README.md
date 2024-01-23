@@ -1,3 +1,5 @@
+## 2024-01-23
+![image](https://www.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-22
 ![image](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-21
