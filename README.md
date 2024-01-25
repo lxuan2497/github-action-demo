@@ -1,3 +1,5 @@
+## 2024-01-25
+![image](https://www.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-24
 ![image](https://www.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[钻石冰沙滩，冰岛 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-23
