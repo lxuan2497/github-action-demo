@@ -1,3 +1,5 @@
+## 2024-02-02
+![image](https://www.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-01
 ![image](https://www.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[吕根岛的萨斯尼茨灯塔，德国 (© Christian Back/eStock)](https://www.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-01-31
