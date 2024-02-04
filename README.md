@@ -1,3 +1,5 @@
+## 2024-02-04
+![image](https://www.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[德弗塔什卡洞, Devetaki村庄，保加利亚 (© Jasmine_K/Shutterstock)](https://www.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-03
 ![image](https://www.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大运河与安康圣母大教堂，威尼斯，意大利 (© Rudy Balasko/Getty Images)](https://www.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-02
