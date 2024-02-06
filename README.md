@@ -1,3 +1,5 @@
+## 2024-02-06
+![image](https://www.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-05
 ![image](https://www.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-04
