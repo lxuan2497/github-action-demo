@@ -1,3 +1,5 @@
+## 2024-02-08
+![image](https://www.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-07
 ![image](https://www.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)](https://www.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-06
