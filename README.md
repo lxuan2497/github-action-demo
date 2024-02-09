@@ -1,3 +1,5 @@
+## 2024-02-09
+![image](https://www.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)](https://www.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-08
 ![image](https://www.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-07
