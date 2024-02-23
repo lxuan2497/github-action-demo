@@ -1,3 +1,5 @@
+## 2024-02-23
+![image](https://www.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Haghartsin修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-22
 ![image](https://www.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚 (© Prasit photo/Getty Images)](https://www.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-21
