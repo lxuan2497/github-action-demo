@@ -1,3 +1,5 @@
+## 2024-02-24
+![image](https://www.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)](https://www.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-23
 ![image](https://www.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Haghartsin修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-22
