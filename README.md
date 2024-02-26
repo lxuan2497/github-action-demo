@@ -1,3 +1,5 @@
+## 2024-02-26
+![image](https://www.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大峡谷国家公园，亚利桑那州，美国 (© Jeremy Janus/Getty Images)](https://www.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-25
 ![image](https://www.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)](https://www.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-02-24
