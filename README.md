@@ -1,3 +1,5 @@
+## 2024-03-06
+![image](https://www.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-05
 ![image](https://www.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock)](https://www.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-04
