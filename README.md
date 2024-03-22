@@ -1,3 +1,5 @@
+## 2024-03-22
+![image](https://www.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-21
 ![image](https://www.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-20
