@@ -1,3 +1,5 @@
+## 2024-03-23
+![image](https://www.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴西亚马逊上空巨大的砧状云 (© NASA)](https://www.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-22
 ![image](https://www.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-21
