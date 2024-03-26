@@ -1,3 +1,5 @@
+## 2024-03-26
+![image](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-25
 ![image](https://www.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大 (© LeonU/Getty Images)](https://www.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-24
