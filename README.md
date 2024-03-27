@@ -1,3 +1,5 @@
+## 2024-03-27
+![image](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-26
 ![image](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-03-25
