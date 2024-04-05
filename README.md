@@ -1,3 +1,5 @@
+## 2024-04-05
+![image](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从国际空间站拍摄的巴哈马群岛 (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-04
 ![image](https://www.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳 (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-03
