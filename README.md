@@ -1,3 +1,5 @@
+## 2024-04-06
+![image](https://www.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-05
 ![image](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从国际空间站拍摄的巴哈马群岛 (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-04
