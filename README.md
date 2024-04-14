@@ -1,3 +1,5 @@
+## 2024-04-14
+![image](https://www.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[保龄球海滩的日落，门多西诺县，加利福尼亚，美国 (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-13
 ![image](https://www.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[春天的苹果树，德国 (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-12
