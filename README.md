@@ -1,3 +1,5 @@
+## 2024-04-19
+![image](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-18
 ![image](https://www.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-17
