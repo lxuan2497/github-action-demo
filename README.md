@@ -1,3 +1,5 @@
+## 2024-04-20
+![image](https://www.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-19
 ![image](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-18
