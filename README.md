@@ -1,3 +1,5 @@
+## 2024-04-26
+![image](https://www.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国 (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-25
 ![image](https://www.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-24
