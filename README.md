@@ -1,3 +1,5 @@
+## 2024-04-29
+![image](https://www.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-28
 ![image](https://www.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-27
