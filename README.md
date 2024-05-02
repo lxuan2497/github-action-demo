@@ -1,3 +1,5 @@
+## 2024-05-02
+![image](https://www.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-01
 ![image](https://www.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夏威夷花环 (© Jotika Pun/Shutterstock)](https://www.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-04-30
