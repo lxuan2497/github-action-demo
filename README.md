@@ -1,3 +1,5 @@
+## 2024-05-04
+![image](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-03
 ![image](https://www.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州 (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-02
