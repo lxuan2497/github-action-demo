@@ -1,3 +1,5 @@
+## 2024-05-05
+![image](https://www.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥 (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-04
 ![image](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-03
