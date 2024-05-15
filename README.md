@@ -1,3 +1,5 @@
+## 2024-05-15
+![image](https://www.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[焦特布尔蓝色之城，印度 (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-14
 ![image](https://www.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-13
