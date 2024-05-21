@@ -1,3 +1,5 @@
+## 2024-05-21
+![image](https://www.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-20
 ![image](https://www.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-19
