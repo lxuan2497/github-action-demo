@@ -1,3 +1,5 @@
+## 2024-05-22
+![image](https://www.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚 (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-21
 ![image](https://www.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-20
