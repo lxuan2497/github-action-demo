@@ -1,3 +1,5 @@
+## 2024-05-25
+![image](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-24
 ![image](https://www.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙 (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-23
