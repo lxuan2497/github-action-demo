@@ -1,3 +1,5 @@
+## 2024-05-28
+![image](https://www.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[罗萨诺修道院，迈泰奥拉，色萨利 ，希腊 (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-27
 ![image](https://www.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-26
