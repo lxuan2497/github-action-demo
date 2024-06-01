@@ -1,3 +1,5 @@
+## 2024-06-01
+![image](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images)](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-31
 ![image](https://www.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰 (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-30
