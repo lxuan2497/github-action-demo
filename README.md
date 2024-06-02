@@ -1,3 +1,5 @@
+## 2024-06-02
+![image](https://www.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普卢马纳克的灯塔，阿摩尔滨海省，法国 (© Christian Handl/Getty Images)](https://www.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-01
 ![image](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images)](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-05-31
