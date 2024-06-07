@@ -1,3 +1,5 @@
+## 2024-06-07
+![image](https://www.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[座头鲸家族，荷兰港，阿拉斯加州 (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-06
 ![image](https://www.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓬德高鸟类公园的大红鹳，卡玛格，法国 (© Yann Guichaoua-Photos/Getty Images)](https://www.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-05
