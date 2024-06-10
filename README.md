@@ -1,3 +1,5 @@
+## 2024-06-10
+![image](https://www.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)](https://www.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-09
 ![image](https://www.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-08
