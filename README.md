@@ -1,3 +1,5 @@
+## 2024-06-12
+![image](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-11
 ![image](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-10
