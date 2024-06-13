@@ -1,3 +1,5 @@
+## 2024-06-13
+![image](https://www.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)](https://www.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-12
 ![image](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-11
