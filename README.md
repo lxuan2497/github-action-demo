@@ -1,3 +1,5 @@
+## 2024-06-15
+![image](https://www.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-14
 ![image](https://www.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-13
