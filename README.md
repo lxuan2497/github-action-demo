@@ -1,3 +1,5 @@
+## 2024-06-18
+![image](https://www.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-17
 ![image](https://www.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-16
