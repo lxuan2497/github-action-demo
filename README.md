@@ -1,3 +1,5 @@
+## 2024-06-21
+![image](https://www.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images)](https://www.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-20
 ![image](https://www.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-19
