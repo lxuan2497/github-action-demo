@@ -1,3 +1,5 @@
+## 2024-06-28
+![image](https://www.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[诺曼底海岸的绍塞群岛，法国 (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-27
 ![image](https://www.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄昏时分的圣母百花大教堂，佛罗伦萨，意大利 (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-26
