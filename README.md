@@ -1,3 +1,5 @@
+## 2024-06-30
+![image](https://www.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-29
 ![image](https://www.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-28
