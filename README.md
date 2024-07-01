@@ -1,3 +1,5 @@
+## 2024-07-01
+![image](https://www.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大 (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-30
 ![image](https://www.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-06-29
