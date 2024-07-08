@@ -1,3 +1,5 @@
+## 2024-07-08
+![image](https://www.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[野生蓝莓 (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-07
 ![image](https://www.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[越南安沛省木仓寨的水稻梯田 (© Kiatanan Sugsompian/Getty Images)](https://www.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-06
