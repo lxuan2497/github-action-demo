@@ -1,3 +1,5 @@
+## 2024-07-11
+![image](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-10
 ![image](https://www.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-09
