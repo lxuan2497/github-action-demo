@@ -1,3 +1,5 @@
+## 2024-07-13
+![image](https://www.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-12
 ![image](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-11
