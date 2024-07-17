@@ -1,3 +1,5 @@
+## 2024-07-17
+![image](https://www.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[德国中世纪城市罗滕堡 (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-16
 ![image](https://www.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰 (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-15
