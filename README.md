@@ -1,3 +1,5 @@
+## 2024-07-24
+![image](https://www.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-23
 ![image](https://www.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-22
