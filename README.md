@@ -1,3 +1,5 @@
+## 2024-07-26
+![image](https://www.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-25
 ![image](https://www.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-24
