@@ -1,3 +1,5 @@
+## 2024-07-31
+![image](https://www.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[石林，日落点，布莱斯峡谷国家公园，犹他州，美国 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-30
 ![image](https://www.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-07-29
