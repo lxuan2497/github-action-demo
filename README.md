@@ -1,3 +1,5 @@
+## 2024-08-06
+![image](https://www.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)](https://www.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-05
 ![image](https://www.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-04
