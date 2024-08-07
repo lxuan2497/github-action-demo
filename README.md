@@ -1,3 +1,5 @@
+## 2024-08-07
+![image](https://www.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-06
 ![image](https://www.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)](https://www.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-05
