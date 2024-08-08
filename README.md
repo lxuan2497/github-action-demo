@@ -1,3 +1,5 @@
+## 2024-08-08
+![image](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-07
 ![image](https://www.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-06
