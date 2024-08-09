@@ -1,3 +1,5 @@
+## 2024-08-09
+![image](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-08
 ![image](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-07
