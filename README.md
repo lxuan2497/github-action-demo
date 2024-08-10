@@ -1,3 +1,5 @@
+## 2024-08-10
+![image](https://www.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-09
 ![image](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-08
