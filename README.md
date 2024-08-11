@@ -1,3 +1,5 @@
+## 2024-08-11
+![image](https://www.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省 (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-10
 ![image](https://www.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-09
