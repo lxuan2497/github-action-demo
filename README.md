@@ -1,3 +1,5 @@
+## 2024-08-12
+![image](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-11
 ![image](https://www.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省 (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-10
