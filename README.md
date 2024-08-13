@@ -1,3 +1,5 @@
+## 2024-08-13
+![image](https://www.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚 (© Ilija Ascic/Shutterstock)](https://www.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-12
 ![image](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-11
