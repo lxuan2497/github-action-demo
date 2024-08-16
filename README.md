@@ -1,3 +1,5 @@
+## 2024-08-16
+![image](https://www.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-15
 ![image](https://www.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-14
