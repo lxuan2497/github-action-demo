@@ -1,3 +1,5 @@
+## 2024-08-17
+![image](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔凡齐纳灯塔，阿尔加维，葡萄牙 (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-16
 ![image](https://www.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-15
