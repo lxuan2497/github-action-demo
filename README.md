@@ -1,3 +1,5 @@
+## 2024-08-18
+![image](https://www.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日落时的亨廷顿海滩码头，加利福尼亚州，美国 (© Stan Moniz Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-17
 ![image](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔凡齐纳灯塔，阿尔加维，葡萄牙 (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-16
