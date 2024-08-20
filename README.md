@@ -1,3 +1,5 @@
+## 2024-08-20
+![image](https://www.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-19
 ![image](https://www.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-18
