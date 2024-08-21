@@ -1,3 +1,5 @@
+## 2024-08-21
+![image](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-20
 ![image](https://www.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-19
