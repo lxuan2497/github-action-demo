@@ -1,3 +1,5 @@
+## 2024-08-22
+![image](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-21
 ![image](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-20
