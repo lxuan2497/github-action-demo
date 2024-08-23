@@ -1,3 +1,5 @@
+## 2024-08-23
+![image](https://www.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-22
 ![image](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-21
