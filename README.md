@@ -1,3 +1,5 @@
+## 2024-08-26
+![image](https://www.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴尔米拉环礁国家野生动物保护区，中太平洋 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-25
 ![image](https://www.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-24
