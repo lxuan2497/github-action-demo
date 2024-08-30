@@ -1,3 +1,5 @@
+## 2024-08-30
+![image](https://www.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[鸟头湾的鲸鲨，西巴布亚，印度尼西亚 (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-29
 ![image](https://www.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[富利特堡-德拉罗卡，加泰罗尼亚，西班牙 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-28
