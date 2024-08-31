@@ -1,3 +1,5 @@
+## 2024-08-31
+![image](https://www.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-30
 ![image](https://www.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[鸟头湾的鲸鲨，西巴布亚，印度尼西亚 (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-29
