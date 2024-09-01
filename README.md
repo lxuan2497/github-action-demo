@@ -1,3 +1,5 @@
+## 2024-09-01
+![image](https://www.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[泰晤士河，伦敦，英国 (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-31
 ![image](https://www.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-30
