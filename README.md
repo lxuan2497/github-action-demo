@@ -1,3 +1,5 @@
+## 2024-09-02
+![image](https://www.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont)](https://www.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-01
 ![image](https://www.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[泰晤士河，伦敦，英国 (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-08-31
