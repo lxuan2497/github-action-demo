@@ -1,3 +1,5 @@
+## 2024-09-04
+![image](https://www.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌雕鸮，巴基斯坦 (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-03
 ![image](https://www.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-02
