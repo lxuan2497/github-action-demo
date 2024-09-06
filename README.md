@@ -1,3 +1,5 @@
+## 2024-09-06
+![image](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-05
 ![image](https://www.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多伦多城市天际线,加拿大 (© Roberto Machado Noa/Getty Images)](https://www.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-04
