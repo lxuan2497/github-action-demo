@@ -1,3 +1,5 @@
+## 2024-09-07
+![image](https://www.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-06
 ![image](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-05
