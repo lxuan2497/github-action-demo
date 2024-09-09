@@ -1,3 +1,5 @@
+## 2024-09-09
+![image](https://www.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-08
 ![image](https://www.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-07
