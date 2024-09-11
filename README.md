@@ -1,3 +1,5 @@
+## 2024-09-11
+![image](https://www.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[埃尔茨城堡，德国 (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-10
 ![image](https://www.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓦斯科·达·伽马大桥，里斯本，葡萄牙 (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-09
