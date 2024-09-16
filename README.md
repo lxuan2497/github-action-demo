@@ -1,3 +1,5 @@
+## 2024-09-16
+![image](https://www.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的小袋鼠，阿德莱德河，北领地，澳大利亚 (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-15
 ![image](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-14
