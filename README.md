@@ -1,3 +1,5 @@
+## 2024-09-18
+![image](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-17
 ![image](https://www.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)](https://www.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-16
