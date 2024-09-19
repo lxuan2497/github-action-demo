@@ -1,3 +1,5 @@
+## 2024-09-19
+![image](https://www.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)](https://www.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-18
 ![image](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-17
