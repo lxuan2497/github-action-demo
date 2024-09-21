@@ -1,3 +1,5 @@
+## 2024-09-21
+![image](https://www.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-20
 ![image](https://www.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-19
