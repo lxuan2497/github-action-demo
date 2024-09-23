@@ -1,3 +1,5 @@
+## 2024-09-23
+![image](https://www.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-22
 ![image](https://www.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-21
