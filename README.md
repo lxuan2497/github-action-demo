@@ -1,3 +1,5 @@
+## 2024-09-26
+![image](https://www.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-25
 ![image](https://www.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-24
