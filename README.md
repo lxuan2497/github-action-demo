@@ -1,3 +1,5 @@
+## 2024-09-29
+![image](https://www.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-28
 ![image](https://www.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-27
