@@ -1,3 +1,5 @@
+## 2024-10-01
+![image](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-30
 ![image](https://www.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威 (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-29
