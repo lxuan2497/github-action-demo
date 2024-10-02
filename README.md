@@ -1,3 +1,5 @@
+## 2024-10-02
+![image](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-01
 ![image](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-09-30
