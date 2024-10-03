@@ -1,3 +1,5 @@
+## 2024-10-03
+![image](https://www.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿格拉的泰姬陵，安拉阿巴德，印度 (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-02
 ![image](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-01
