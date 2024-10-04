@@ -1,3 +1,5 @@
+## 2024-10-04
+![image](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-03
 ![image](https://www.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿格拉的泰姬陵，安拉阿巴德，印度 (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-02
