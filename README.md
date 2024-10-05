@@ -1,3 +1,5 @@
+## 2024-10-05
+![image](https://www.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-04
 ![image](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-03
