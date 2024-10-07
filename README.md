@@ -1,3 +1,5 @@
+## 2024-10-07
+![image](https://www.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[法属波利尼西亚波拉波拉岛的鸟瞰图 (© GLF Media/Shutterstock)](https://www.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-06
 ![image](https://www.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-05
