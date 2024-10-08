@@ -1,3 +1,5 @@
+## 2024-10-08
+![image](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-07
 ![image](https://www.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[法属波利尼西亚波拉波拉岛的鸟瞰图 (© GLF Media/Shutterstock)](https://www.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-06
