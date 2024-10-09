@@ -1,3 +1,5 @@
+## 2024-10-09
+![image](https://www.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-08
 ![image](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-07
