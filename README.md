@@ -1,3 +1,5 @@
+## 2024-10-11
+![image](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄山云海，安徽省，中国 (© yangyang1991/Getty Images)](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-10
 ![image](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-09
