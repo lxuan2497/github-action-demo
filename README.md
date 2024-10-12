@@ -1,3 +1,5 @@
+## 2024-10-12
+![image](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-11
 ![image](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄山云海，安徽省，中国 (© yangyang1991/Getty Images)](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-10
