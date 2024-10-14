@@ -1,3 +1,5 @@
+## 2024-10-14
+![image](https://www.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-13
 ![image](https://www.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-12
