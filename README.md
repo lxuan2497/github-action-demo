@@ -1,3 +1,5 @@
+## 2024-10-16
+![image](https://www.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[侏罗纪海岸的箭石和菊石化石，多塞特郡，英国 (© Nature Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-15
 ![image](https://www.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-14
