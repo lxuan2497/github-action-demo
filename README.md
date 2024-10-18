@@ -1,3 +1,5 @@
+## 2024-10-18
+![image](https://www.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-17
 ![image](https://www.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[地肤草，茨城县，日本 (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-16
