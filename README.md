@@ -1,3 +1,5 @@
+## 2024-10-20
+![image](https://www.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-19
 ![image](https://www.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-18
