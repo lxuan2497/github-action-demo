@@ -1,3 +1,5 @@
+## 2024-10-22
+![image](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-21
 ![image](https://www.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-20
