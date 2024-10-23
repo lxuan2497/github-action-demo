@@ -1,3 +1,5 @@
+## 2024-10-23
+![image](https://www.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-22
 ![image](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-21
