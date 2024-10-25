@@ -1,3 +1,5 @@
+## 2024-10-25
+![image](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-24
 ![image](https://www.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[博迪州立历史公园，莫诺县，加利福尼亚州，美国 (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-23
