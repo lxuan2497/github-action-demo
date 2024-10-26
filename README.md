@@ -1,3 +1,5 @@
+## 2024-10-26
+![image](https://www.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国 (© mauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-25
 ![image](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-24
