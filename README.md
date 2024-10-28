@@ -1,3 +1,5 @@
+## 2024-10-28
+![image](https://www.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-27
 ![image](https://www.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-26
