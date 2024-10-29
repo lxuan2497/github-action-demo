@@ -1,3 +1,5 @@
+## 2024-10-29
+![image](https://www.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大雕鸮 (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-28
 ![image](https://www.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-27
