@@ -1,3 +1,5 @@
+## 2024-10-30
+![image](https://www.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-29
 ![image](https://www.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大雕鸮 (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-28
