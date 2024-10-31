@@ -1,3 +1,5 @@
+## 2024-10-31
+![image](https://www.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴黎圣母院的奇美拉，法国 (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-30
 ![image](https://www.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-10-29
