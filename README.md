@@ -1,3 +1,5 @@
+## 2024-11-03
+![image](https://www.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥 (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-02
 ![image](https://www.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄石国家公园的美洲野牛，怀俄明州，美国 (© Ian Shive/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-01
