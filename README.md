@@ -1,3 +1,5 @@
+## 2024-11-05
+![image](https://www.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马拉赫塞斯国家公园，马拉尼昂州,巴西 (© thanosquest/Shutterstock)](https://www.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-04
 ![image](https://www.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images)](https://www.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-03
