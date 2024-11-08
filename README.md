@@ -1,3 +1,5 @@
+## 2024-11-08
+![image](https://www.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-07
 ![image](https://www.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)](https://www.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-06
