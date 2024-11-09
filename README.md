@@ -1,3 +1,5 @@
+## 2024-11-09
+![image](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-08
 ![image](https://www.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-07
