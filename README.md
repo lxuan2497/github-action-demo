@@ -1,3 +1,5 @@
+## 2024-11-10
+![image](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-09
 ![image](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-08
