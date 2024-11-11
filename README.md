@@ -1,3 +1,5 @@
+## 2024-11-11
+![image](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-10
 ![image](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-09
