@@ -1,3 +1,5 @@
+## 2024-11-12
+![image](https://www.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-11
 ![image](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-10
