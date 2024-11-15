@@ -1,3 +1,5 @@
+## 2024-11-15
+![image](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-14
 ![image](https://www.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-13
