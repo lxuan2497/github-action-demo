@@ -1,3 +1,5 @@
+## 2024-11-16
+![image](https://www.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰 (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-15
 ![image](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-14
