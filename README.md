@@ -1,3 +1,5 @@
+## 2024-11-19
+![image](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-18
 ![image](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-17
