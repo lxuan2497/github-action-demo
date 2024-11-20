@@ -1,3 +1,5 @@
+## 2024-11-20
+![image](https://www.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)](https://www.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-19
 ![image](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-18
