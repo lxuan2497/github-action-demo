@@ -1,3 +1,5 @@
+## 2024-11-21
+![image](https://www.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的两只小狮子，南非 (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-20
 ![image](https://www.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)](https://www.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-19
