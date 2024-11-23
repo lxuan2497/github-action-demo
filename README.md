@@ -1,3 +1,5 @@
+## 2024-11-23
+![image](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-22
 ![image](https://www.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-21
