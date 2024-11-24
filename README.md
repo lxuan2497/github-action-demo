@@ -1,3 +1,5 @@
+## 2024-11-24
+![image](https://www.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-23
 ![image](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-22
