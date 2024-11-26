@@ -1,3 +1,5 @@
+## 2024-11-26
+![image](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-25
 ![image](https://www.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-24
