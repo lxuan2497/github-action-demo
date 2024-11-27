@@ -1,3 +1,5 @@
+## 2024-11-27
+![image](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-26
 ![image](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-25
