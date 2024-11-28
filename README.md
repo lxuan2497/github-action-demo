@@ -1,3 +1,5 @@
+## 2024-11-28
+![image](https://www.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-27
 ![image](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-26
