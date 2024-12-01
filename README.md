@@ -1,3 +1,5 @@
+## 2024-12-01
+![image](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南极洲的冰山 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-30
 ![image](https://www.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰 (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-29
