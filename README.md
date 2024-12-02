@@ -1,3 +1,5 @@
+## 2024-12-02
+![image](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雌性驼鹿，德纳里国家公园，阿拉斯加州，美国 (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-01
 ![image](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南极洲的冰山 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-11-30
