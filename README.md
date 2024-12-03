@@ -1,3 +1,5 @@
+## 2024-12-03
+![image](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-02
 ![image](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雌性驼鹿，德纳里国家公园，阿拉斯加州，美国 (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-01
