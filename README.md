@@ -1,3 +1,5 @@
+## 2024-12-04
+![image](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雄性白犀，纳库鲁湖，肯尼亚 (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-03
 ![image](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-02
