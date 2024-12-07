@@ -1,3 +1,5 @@
+## 2024-12-07
+![image](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-06
 ![image](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-05
