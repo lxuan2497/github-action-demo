@@ -1,3 +1,5 @@
+## 2024-12-08
+![image](https://www.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)](https://www.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-07
 ![image](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-06
