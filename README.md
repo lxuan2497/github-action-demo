@@ -1,3 +1,5 @@
+## 2024-12-10
+![image](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-09
 ![image](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[两只原驼,托雷斯德尔帕恩国家公园 , 智利 (© Floris van Breugel/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-08
