@@ -1,3 +1,5 @@
+## 2024-12-11
+![image](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-10
 ![image](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-09
