@@ -1,3 +1,5 @@
+## 2024-12-12
+![image](https://www.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一品红或圣诞花 (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-11
 ![image](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-10
