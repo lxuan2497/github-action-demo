@@ -1,3 +1,5 @@
+## 2024-12-14
+![image](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[猛鸮，加拿大 (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-13
 ![image](https://www.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利 (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-12
