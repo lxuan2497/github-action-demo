@@ -1,3 +1,5 @@
+## 2024-12-15
+![image](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-14
 ![image](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[猛鸮，加拿大 (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-13
