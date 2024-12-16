@@ -1,3 +1,5 @@
+## 2024-12-16
+![image](https://www.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[萨尔茨堡，奥地利 (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-15
 ![image](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-14
