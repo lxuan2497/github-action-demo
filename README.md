@@ -1,3 +1,5 @@
+## 2024-12-19
+![image](https://www.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-18
 ![image](https://www.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock)](https://www.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-17
