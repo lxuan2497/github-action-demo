@@ -1,3 +1,5 @@
+## 2024-12-22
+![image](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国 (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-21
 ![image](https://www.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)](https://www.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-20
