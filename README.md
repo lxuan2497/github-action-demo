@@ -1,3 +1,5 @@
+## 2024-12-23
+![image](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[钏路的两只丹顶鹤，北海道，日本 (© Wirestock, Inc./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-22
 ![image](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国 (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-21
