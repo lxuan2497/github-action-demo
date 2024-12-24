@@ -1,3 +1,5 @@
+## 2024-12-24
+![image](https://www.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[德国圣诞市场 (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-23
 ![image](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[钏路的两只丹顶鹤，北海道，日本 (© Wirestock, Inc./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-22
