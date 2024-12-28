@@ -1,3 +1,5 @@
+## 2024-12-28
+![image](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-27
 ![image](https://www.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布莱德湖，斯洛文尼亚 (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-26
