@@ -1,3 +1,5 @@
+## 2025-01-01
+![image](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-31
 ![image](https://www.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)](https://www.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-30
