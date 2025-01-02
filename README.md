@@ -1,3 +1,5 @@
+## 2025-01-02
+![image](https://www.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尔德兹村上空的星轨，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-01
 ![image](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2024-12-31
