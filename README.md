@@ -1,3 +1,5 @@
+## 2025-01-06
+![image](https://www.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利 (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-05
 ![image](https://www.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[希莫加的紫红头鹦鹉，卡纳塔克邦，印度 (© Hira Punjabi/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-04
