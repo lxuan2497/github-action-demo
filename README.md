@@ -1,3 +1,5 @@
+## 2025-01-07
+![image](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日落时的摩拉基大圆石，南岛，新西兰 (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-06
 ![image](https://www.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利 (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-05
