@@ -1,3 +1,5 @@
+## 2025-01-08
+![image](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-07
 ![image](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日落时的摩拉基大圆石，南岛，新西兰 (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-06
