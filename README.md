@@ -1,3 +1,5 @@
+## 2025-01-09
+![image](https://www.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-08
 ![image](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-07
