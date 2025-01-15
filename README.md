@@ -1,3 +1,5 @@
+## 2025-01-15
+![image](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-14
 ![image](https://www.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Village of Zahara de la Sierra, Cádiz province, Spain (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-13
