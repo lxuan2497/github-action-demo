@@ -1,3 +1,5 @@
+## 2025-01-22
+![image](https://www.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-21
 ![image](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-01-20
