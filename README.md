@@ -1,3 +1,5 @@
+## 2025-02-03
+![image](https://www.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[盛开的樱花树上的红头长尾山雀 (© Haitong Yu/Getty Images)](https://www.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-02
 ![image](https://www.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-01
