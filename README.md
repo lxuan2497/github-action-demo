@@ -1,3 +1,5 @@
+## 2025-02-11
+![image](https://www.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-10
 ![image](https://www.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)](https://www.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-09
