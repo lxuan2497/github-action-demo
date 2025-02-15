@@ -1,3 +1,5 @@
+## 2025-02-15
+![image](https://www.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[三十槌冰柱，秩父市，日本 (© watayu0821/shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-14
 ![image](https://www.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-13
