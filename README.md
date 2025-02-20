@@ -1,3 +1,5 @@
+## 2025-02-20
+![image](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马鹿，加拿大 (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-19
 ![image](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[欧亚水獭，莱利斯塔德，荷兰 (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-18
