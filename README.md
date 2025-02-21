@@ -1,3 +1,5 @@
+## 2025-02-21
+![image](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-20
 ![image](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马鹿，加拿大 (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-19
