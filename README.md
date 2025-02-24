@@ -1,3 +1,5 @@
+## 2025-02-24
+![image](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-23
 ![image](https://www.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时分的富士山, 河口湖, 日本 (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-22
