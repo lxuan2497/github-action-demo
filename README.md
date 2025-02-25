@@ -1,3 +1,5 @@
+## 2025-02-25
+![image](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-24
 ![image](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-23
