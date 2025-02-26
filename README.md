@@ -1,3 +1,5 @@
+## 2025-02-26
+![image](https://www.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰 (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-25
 ![image](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-02-24
