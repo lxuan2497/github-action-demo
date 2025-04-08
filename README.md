@@ -1,3 +1,5 @@
+## 2025-04-08
+![image](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[春天的水仙花在清晨绽放 (© LedyX/Shutterstock)](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-04-07
 ![image](https://www.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[美洲海狸, Moran, 怀俄明州, 美国 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-04-06
