@@ -1,3 +1,5 @@
+## 2025-04-09
+![image](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊 (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-04-08
 ![image](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[春天的水仙花在清晨绽放 (© LedyX/Shutterstock)](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-04-07
