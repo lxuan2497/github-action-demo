@@ -1,3 +1,5 @@
+## 2025-04-18
+![image](https://www.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡帕多西亚格雷梅国家公园上空的热气球，土耳其 (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-04-17
 ![image](https://www.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安第斯动冠伞鸟，厄瓜多尔 (© Kit Day/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-04-16
