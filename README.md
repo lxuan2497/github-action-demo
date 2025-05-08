@@ -1,3 +1,5 @@
+## 2025-05-08
+![image](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-07
 ![image](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-06
