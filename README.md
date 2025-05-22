@@ -1,3 +1,5 @@
+## 2025-05-22
+![image](https://www.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-21
 ![image](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-20
