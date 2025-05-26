@@ -1,3 +1,5 @@
+## 2025-05-26
+![image](https://www.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[沿着岚山保津川行驶的火车，京都，日本 (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-25
 ![image](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-24
