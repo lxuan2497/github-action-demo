@@ -1,3 +1,5 @@
+## 2025-06-01
+![image](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格朗特尔岛附近的堡礁，法属新喀里多尼亚 (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-31
 ![image](https://www.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国 (© Visual China Group/Getty Images)](https://www.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-05-30
