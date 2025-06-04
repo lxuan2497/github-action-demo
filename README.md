@@ -1,3 +1,5 @@
+## 2025-06-04
+![image](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-03
 ![image](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌得勒支桥上的自行车，荷兰 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-02
