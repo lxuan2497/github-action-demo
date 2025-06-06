@@ -1,3 +1,5 @@
+## 2025-06-06
+![image](https://www.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[诺曼底的阿罗芒什莱班 , 法国 (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-05
 ![image](https://www.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[福玛萨瀑布，迪亚曼蒂纳，巴西 (© Pulsar Images/Alamy)](https://www.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-04
