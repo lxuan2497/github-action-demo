@@ -1,3 +1,5 @@
+## 2025-06-12
+![image](https://www.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-11
 ![image](https://www.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大红鹳，吕德里茨，纳米比亚 (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-10
