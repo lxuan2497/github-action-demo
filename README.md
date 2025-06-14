@@ -1,3 +1,5 @@
+## 2025-06-14
+![image](https://www.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-13
 ![image](https://www.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-12
