@@ -1,3 +1,5 @@
+## 2025-06-19
+![image](https://www.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-18
 ![image](https://www.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[红花石蒜上的柑橘凤蝶 (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-17
