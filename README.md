@@ -1,3 +1,5 @@
+## 2025-06-20
+![image](https://www.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-19
 ![image](https://www.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-18
