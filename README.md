@@ -1,3 +1,5 @@
+## 2025-06-24
+![image](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-23
 ![image](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-22
