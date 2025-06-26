@@ -1,3 +1,5 @@
+## 2025-06-26
+![image](https://www.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马头岩上空的银河, 新南威尔士州, 澳大利亚 (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-25
 ![image](https://www.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰 (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-24
