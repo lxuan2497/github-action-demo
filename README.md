@@ -1,3 +1,5 @@
+## 2025-06-28
+![image](https://www.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[曼海姆水塔, 德国 (© no limit pictures/Getty Images)](https://www.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-27
 ![image](https://www.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-26
