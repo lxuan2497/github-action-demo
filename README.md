@@ -1,3 +1,5 @@
+## 2025-06-30
+![image](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-29
 ![image](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-28
