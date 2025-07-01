@@ -1,3 +1,5 @@
+## 2025-07-01
+![image](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大 (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-30
 ![image](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-29
