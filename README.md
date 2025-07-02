@@ -1,3 +1,5 @@
+## 2025-07-02
+![image](https://www.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚 (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-01
 ![image](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大 (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-06-30
