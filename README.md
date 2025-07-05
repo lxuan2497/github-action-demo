@@ -1,3 +1,5 @@
+## 2025-07-05
+![image](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-04
 ![image](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-03
