@@ -1,3 +1,5 @@
+## 2025-07-06
+![image](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-05
 ![image](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-04
