@@ -1,3 +1,5 @@
+## 2025-07-07
+![image](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-06
 ![image](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-05
