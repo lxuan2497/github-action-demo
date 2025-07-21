@@ -1,3 +1,5 @@
+## 2025-07-21
+![image](https://www.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-20
 ![image](https://www.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[望远镜下的月球表面照片 (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-19
