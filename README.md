@@ -1,3 +1,5 @@
+## 2025-07-22
+![image](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-21
 ![image](https://www.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-20
