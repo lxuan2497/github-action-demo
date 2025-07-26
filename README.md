@@ -1,3 +1,5 @@
+## 2025-07-26
+![image](https://www.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚 (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-25
 ![image](https://www.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-24
