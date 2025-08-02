@@ -1,3 +1,5 @@
+## 2025-08-02
+![image](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国 (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-01
 ![image](https://www.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[皇家英里大道, 爱丁堡, 苏格兰 (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-07-31
