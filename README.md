@@ -1,3 +1,5 @@
+## 2025-08-03
+![image](https://www.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夏天田野里盛开的向日葵 (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-02
 ![image](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国 (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-01
