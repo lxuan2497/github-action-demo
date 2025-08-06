@@ -1,3 +1,5 @@
+## 2025-08-06
+![image](https://www.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加 (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-05
 ![image](https://www.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-04
