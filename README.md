@@ -1,3 +1,5 @@
+## 2025-08-16
+![image](https://www.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-15
 ![image](https://www.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-14
