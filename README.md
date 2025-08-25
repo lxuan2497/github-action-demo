@@ -1,3 +1,5 @@
+## 2025-08-25
+![image](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-24
 ![image](https://www.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[欧洲黇鹿‌，英格兰 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-23
