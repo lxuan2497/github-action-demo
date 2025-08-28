@@ -1,3 +1,5 @@
+## 2025-08-28
+![image](https://www.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大白鹭，匈牙利 (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-27
 ![image](https://www.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-08-26
