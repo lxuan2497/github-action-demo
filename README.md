@@ -1,3 +1,5 @@
+## 2025-09-09
+![image](https://www.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-08
 ![image](https://www.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乌节图书馆，新加坡 (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-07
