@@ -1,3 +1,5 @@
+## 2025-09-13
+![image](https://www.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-12
 ![image](https://www.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-11
