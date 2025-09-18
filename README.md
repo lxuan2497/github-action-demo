@@ -1,3 +1,5 @@
+## 2025-09-18
+![image](https://www.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-17
 ![image](https://www.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-16
