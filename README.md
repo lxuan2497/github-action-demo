@@ -1,3 +1,5 @@
+## 2025-09-23
+![image](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-22
 ![image](https://www.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋日的白杨树，鱼湖国家森林，犹他州，美国 (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-21
