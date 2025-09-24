@@ -1,3 +1,5 @@
+## 2025-09-24
+![image](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-23
 ![image](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-22
