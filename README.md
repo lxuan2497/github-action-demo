@@ -1,3 +1,5 @@
+## 2025-09-25
+![image](https://www.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-24
 ![image](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-23
