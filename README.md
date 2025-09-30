@@ -1,3 +1,5 @@
+## 2025-09-30
+![image](https://www.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-29
 ![image](https://www.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-09-28
