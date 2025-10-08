@@ -1,3 +1,5 @@
+## 2025-10-08
+![image](https://www.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[白日章鱼, 毛伊岛, 夏威夷, 美国 (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-07
 ![image](https://www.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-06
