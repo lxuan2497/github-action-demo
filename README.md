@@ -1,3 +1,5 @@
+## 2025-10-10
+![image](https://www.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-09
 ![image](https://www.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-08
