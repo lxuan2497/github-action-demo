@@ -1,3 +1,5 @@
+## 2025-10-20
+![image](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-19
 ![image](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[即将收获的苹果，明尼苏达州，美国 (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-18
