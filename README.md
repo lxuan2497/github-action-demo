@@ -1,3 +1,5 @@
+## 2025-10-21
+![image](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-20
 ![image](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-19
