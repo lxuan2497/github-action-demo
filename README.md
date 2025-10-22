@@ -1,3 +1,5 @@
+## 2025-10-22
+![image](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-21
 ![image](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-20
