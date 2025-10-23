@@ -1,3 +1,5 @@
+## 2025-10-23
+![image](https://www.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度 (© Oriol Alamany/naturepl.com)](https://www.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-22
 ![image](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-21
