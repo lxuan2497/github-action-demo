@@ -1,3 +1,5 @@
+## 2025-10-29
+![image](https://www.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙 (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-28
 ![image](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-27
