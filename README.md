@@ -1,3 +1,5 @@
+## 2025-10-31
+![image](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-30
 ![image](https://www.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度 (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-29
