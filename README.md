@@ -1,3 +1,5 @@
+## 2025-11-01
+![image](https://www.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国 (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-31
 ![image](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-30
