@@ -1,3 +1,5 @@
+## 2025-11-02
+![image](https://www.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-01
 ![image](https://www.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国 (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-10-31
