@@ -1,3 +1,5 @@
+## 2025-11-03
+![image](https://www.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在太平洋中游泳的水母, 格雷罗, 墨西哥 (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-02
 ![image](https://www.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-01
