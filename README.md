@@ -1,3 +1,5 @@
+## 2025-11-09
+![image](https://www.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-08
 ![image](https://www.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-07
