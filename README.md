@@ -1,3 +1,5 @@
+## 2025-11-10
+![image](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-09
 ![image](https://www.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-08
