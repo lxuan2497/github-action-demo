@@ -1,3 +1,5 @@
+## 2025-11-11
+![image](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-10
 ![image](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-09
