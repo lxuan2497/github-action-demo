@@ -1,3 +1,5 @@
+## 2025-11-13
+![image](https://www.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚 (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-12
 ![image](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-11
