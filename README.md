@@ -1,3 +1,5 @@
+## 2025-11-15
+![image](https://www.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-14
 ![image](https://www.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-13
