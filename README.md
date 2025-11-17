@@ -1,3 +1,5 @@
+## 2025-11-17
+![image](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-16
 ![image](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-15
