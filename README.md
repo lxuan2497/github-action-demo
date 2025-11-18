@@ -1,3 +1,5 @@
+## 2025-11-18
+![image](https://www.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-17
 ![image](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-16
