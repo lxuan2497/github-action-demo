@@ -1,3 +1,5 @@
+## 2025-11-20
+![image](https://www.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)](https://www.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-19
 ![image](https://www.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-18
