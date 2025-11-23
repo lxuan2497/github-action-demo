@@ -1,3 +1,5 @@
+## 2025-11-23
+![image](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-22
 ![image](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-21
