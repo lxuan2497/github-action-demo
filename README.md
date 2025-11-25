@@ -1,3 +1,5 @@
+## 2025-11-25
+![image](https://www.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-24
 ![image](https://www.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-11-23
