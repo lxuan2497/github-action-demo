@@ -1,3 +1,5 @@
+## 2025-12-04
+![image](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-03
 ![image](https://www.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国 (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-02
