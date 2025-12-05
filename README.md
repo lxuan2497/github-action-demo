@@ -1,3 +1,5 @@
+## 2025-12-05
+![image](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-04
 ![image](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-03
