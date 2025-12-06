@@ -1,3 +1,5 @@
+## 2025-12-06
+![image](https://www.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大沼泽地国家公园的蜘蛛网，佛罗里达州，美国 (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-05
 ![image](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-04
