@@ -1,3 +1,5 @@
+## 2025-12-08
+![image](https://www.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-07
 ![image](https://www.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)](https://www.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-06
