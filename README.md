@@ -1,3 +1,5 @@
+## 2025-12-11
+![image](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-10
 ![image](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-09
