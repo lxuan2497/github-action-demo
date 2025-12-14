@@ -1,3 +1,5 @@
+## 2025-12-14
+![image](https://www.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-13
 ![image](https://www.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[默塞德河, 优胜美地国家公园, 加利福尼亚, 美国 (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-12
