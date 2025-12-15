@@ -1,3 +1,5 @@
+## 2025-12-15
+![image](https://www.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-14
 ![image](https://www.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-13
