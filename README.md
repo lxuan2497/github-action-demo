@@ -1,3 +1,5 @@
+## 2025-12-19
+![image](https://www.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-18
 ![image](https://www.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-17
