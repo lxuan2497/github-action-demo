@@ -1,3 +1,5 @@
+## 2025-12-29
+![image](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其 (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-28
 ![image](https://www.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马达加斯加的黑白环尾狐猴 (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-27
