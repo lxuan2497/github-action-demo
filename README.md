@@ -1,3 +1,5 @@
+## 2025-12-30
+![image](https://www.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[晨光透过结霜的树木洒下，瑞典 (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-29
 ![image](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其 (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-28
