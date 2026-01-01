@@ -1,3 +1,5 @@
+## 2026-01-01
+![image](https://www.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[正在睡觉的北极狐 (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-31
 ![image](https://www.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[除夕夜，奥伯鲍姆桥，柏林，德国 (© spreephoto.de/Getty Images)](https://www.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2025-12-30
