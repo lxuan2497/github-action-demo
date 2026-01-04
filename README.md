@@ -1,3 +1,5 @@
+## 2026-01-04
+![image](https://www.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[国王山, 楚加奇山脉, 阿拉斯加, 美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-03
 ![image](https://www.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士 (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-02
