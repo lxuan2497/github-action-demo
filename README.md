@@ -1,3 +1,5 @@
+## 2026-01-06
+![image](https://www.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[努克, 格陵兰 (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-05
 ![image](https://www.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一群高角羚, 隆多洛齐野生动物保护区, 南非 (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-04
