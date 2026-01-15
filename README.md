@@ -1,3 +1,5 @@
+## 2026-01-15
+![image](https://www.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-14
 ![image](https://www.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-13
