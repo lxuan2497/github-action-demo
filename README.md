@@ -1,3 +1,5 @@
+## 2026-01-22
+![image](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-21
 ![image](https://www.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[欧亚红松鼠 (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-20
