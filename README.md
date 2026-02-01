@@ -1,3 +1,5 @@
+## 2026-02-01
+![image](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥林达的彩色房子, 巴西 (© Robert Pekar/Alamy)](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-31
 ![image](https://www.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[平原斑马, 埃托沙国家公园, 纳米比亚 (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-01-30
