@@ -1,3 +1,5 @@
+## 2026-02-13
+![image](https://www.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[连接老挝和泰国的第三座泰老友谊大桥 (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-12
 ![image](https://www.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔 (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-11
