@@ -1,3 +1,5 @@
+## 2026-02-16
+![image](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-15
 ![image](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-14
