@@ -1,3 +1,5 @@
+## 2026-02-18
+![image](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-17
 ![image](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[中国春节传统汉字“福” (© DuKai摄影师/Getty Images)](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-16
