@@ -1,3 +1,5 @@
+## 2026-02-22
+![image](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-21
 ![image](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-02-20
