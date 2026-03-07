@@ -1,3 +1,5 @@
+## 2026-03-07
+![image](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布罗肯峰的日出, 哈尔茨国家公园, 德国 (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-03-06
 ![image](https://www.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[波浪住宅楼, 瓦埃勒, 丹麦 (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-03-05
