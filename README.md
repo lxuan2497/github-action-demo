@@ -1,3 +1,5 @@
+## 2026-04-07
+![image](https://www.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[河狸，德国 (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-04-06
 ![image](https://www.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[樱花盛开的弘前城，弘前，日本 (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-04-05
