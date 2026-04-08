@@ -1,3 +1,5 @@
+## 2026-04-08
+![image](https://www.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-04-07
 ![image](https://www.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[河狸，德国 (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-04-06
