@@ -1,3 +1,5 @@
+## 2026-04-19
+![image](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-04-18
 ![image](https://www.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-04-17
