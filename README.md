@@ -1,3 +1,5 @@
+## 2026-05-28
+![image](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[华城堡的古城墙，水原，韩国 (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-05-27
 ![image](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-05-26
