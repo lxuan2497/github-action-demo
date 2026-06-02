@@ -1,3 +1,5 @@
+## 2026-06-02
+![image](https://www.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[穿越西台吉乃尔湖的公路，青海省，中国 (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-06-01
 ![image](https://www.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-05-31
