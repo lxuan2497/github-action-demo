@@ -1,3 +1,5 @@
+## 2026-06-08
+![image](https://www.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在海洋中游动的狮鬃水母 (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-06-07
 ![image](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-06-06
