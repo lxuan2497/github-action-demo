@@ -1,3 +1,5 @@
+## 2026-07-06
+![image](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-05
 ![image](https://www.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[瓦朗索勒高原的薰衣草行，普罗旺斯，法国 (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-04
