@@ -1,3 +1,5 @@
+## 2026-07-07
+![image](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[板嘴山巨嘴鸟与兰花，厄瓜多尔 (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-06
 ![image](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-05
