@@ -1,3 +1,5 @@
+## 2026-07-10
+![image](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[陆地与海洋的鸟瞰图，维多利亚州，澳大利亚 (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-09
 ![image](https://www.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-08
