@@ -1,3 +1,5 @@
+## 2026-07-11
+![image](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-10
 ![image](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[陆地与海洋的鸟瞰图，维多利亚州，澳大利亚 (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-09
