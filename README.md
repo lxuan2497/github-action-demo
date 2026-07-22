@@ -1,3 +1,5 @@
+## 2026-07-22
+![image](https://www.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[珊瑚礁与海滩在拉贾安帕特，印度尼西亚 (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-21
 ![image](https://www.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-20
