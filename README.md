@@ -1,3 +1,5 @@
+## 2026-07-25
+![image](https://www.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大教堂海滩，加利西亚，西班牙 (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-24
 ![image](https://www.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-23
