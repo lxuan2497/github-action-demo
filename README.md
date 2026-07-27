@@ -1,3 +1,5 @@
+## 2026-07-27
+![image](https://www.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-26
 ![image](https://www.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-07-25
