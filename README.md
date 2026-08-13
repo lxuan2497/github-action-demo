@@ -1,3 +1,5 @@
+## 2026-08-13
+![image](https://www.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-12
 ![image](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-11
