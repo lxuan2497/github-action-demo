@@ -1,3 +1,5 @@
+## 2026-08-18
+![image](https://www.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[弗留利要塞城市帕尔马诺瓦航拍图，意大利 (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-17
 ![image](https://www.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾 (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-16
