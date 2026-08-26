@@ -1,3 +1,5 @@
+## 2026-08-26
+![image](https://www.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-25
 ![image](https://www.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-24
