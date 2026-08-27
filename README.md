@@ -1,3 +1,5 @@
+## 2026-08-27
+![image](https://www.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[日出时的小红鹳群，马加迪湖，肯尼亚 (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-26
 ![image](https://www.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-08-25
