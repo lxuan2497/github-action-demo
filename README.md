@@ -1,3 +1,5 @@
+## 2026-09-15
+![image](https://www.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[红绿金刚鹦鹉 (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-14
 ![image](https://www.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[地肤田，中国 (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-13
