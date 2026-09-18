@@ -1,3 +1,5 @@
+## 2026-09-18
+![image](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[温纳茨山口，峰区国家公园，英格兰 (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-17
 ![image](https://www.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-16
