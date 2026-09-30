@@ -1,3 +1,5 @@
+## 2026-09-30
+![image](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-29
 ![image](https://www.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-28
