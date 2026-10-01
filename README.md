@@ -1,3 +1,5 @@
+## 2026-10-01
+![image](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-30
 ![image](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-09-29
