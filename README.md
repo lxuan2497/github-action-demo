@@ -1,3 +1,5 @@
+## 2026-10-06
+![image](https://www.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[丹霞地貌，张掖国家地质公园，甘肃省，中国 (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-05
 ![image](https://www.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[南极洲的阿德利企鹅 (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-04
