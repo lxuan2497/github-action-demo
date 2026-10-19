@@ -1,3 +1,5 @@
+## 2026-10-19
+![image](https://www.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大运河，威尼斯，意大利 (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-18
 ![image](https://www.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士 (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-17
