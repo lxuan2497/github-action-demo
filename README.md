@@ -1,3 +1,5 @@
+## 2026-10-28
+![image](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-27
 ![image](https://www.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[秋叶缤纷的池杉林，乔治亚州，美国 (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-26
