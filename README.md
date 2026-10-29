@@ -1,3 +1,5 @@
+## 2026-10-29
+![image](https://www.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-28
 ![image](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-10-27
