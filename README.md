@@ -1,3 +1,5 @@
+## 2026-11-04
+![image](https://www.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-03
 ![image](https://www.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利 (© leonid_tit/Getty Images)](https://www.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-02
