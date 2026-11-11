@@ -1,3 +1,5 @@
+## 2026-11-11
+![image](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[大西洋森林，巴西 (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-10
 ![image](https://www.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[玫瑰岛航拍图，巴哈马 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-09
