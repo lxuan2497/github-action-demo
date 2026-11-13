@@ -1,3 +1,5 @@
+## 2026-11-13
+![image](https://www.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-12
 ![image](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[北窗，拱门国家公园，莫阿布，犹他州，美国 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-11
