@@ -1,3 +1,5 @@
+## 2026-11-22
+![image](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-21
 ![image](https://www.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)[法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯 (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=HpEdgeAn)
 ## 2026-11-20
